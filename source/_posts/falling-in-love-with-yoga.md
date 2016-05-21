@@ -9,10 +9,6 @@ tags:
   - Yoga Practice
 id: 917
 categories:
-  - Advice
-  - Health
-  - How To
-  - Training
   - Yoga
 date: 2015-04-22 03:26:41
 ---

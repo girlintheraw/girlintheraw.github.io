@@ -19,11 +19,8 @@ tags:
   - yoga
 id: 190
 categories:
-  - 'Run, Tri &amp; Race'
-  - Running
   - Training
-  - Uncategorized
-  - Yoga
+  - Running
 date: 2014-07-29 15:18:56
 ---
 

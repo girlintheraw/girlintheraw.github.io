@@ -14,12 +14,8 @@ tags:
   - Training Plan
 id: 44
 categories:
-  - Advice
-  - Nutrition Plan
-  - Nutrition Talk
-  - Running
-  - Summer
   - Training
+  - Running
 date: 2013-08-21 21:38:25
 ---
 

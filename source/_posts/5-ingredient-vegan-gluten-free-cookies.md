@@ -13,13 +13,7 @@ tags:
   - Vegan
 id: 731
 categories:
-  - Cooked
-  - Gluten Free
-  - Nuts
-  - Raw
   - Recipes
-  - Sweets
-  - Vegan
 date: 2015-02-04 00:36:46
 ---
 

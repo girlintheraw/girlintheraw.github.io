@@ -10,9 +10,6 @@ tags:
   - yoga
 id: 1437
 categories:
-  - Fitness Challenges
-  - How To
-  - 'Run, Tri &amp; Race'
   - Training
   - Yoga
 date: 2015-07-28 19:18:14

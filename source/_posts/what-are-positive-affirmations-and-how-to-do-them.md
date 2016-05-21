@@ -11,11 +11,7 @@ tags:
 id: 1353
 categories:
   - Advice
-  - Articles
   - Healing
-  - How To
-  - Yoga
-  - Yoga Therapy
 date: 2015-06-24 19:07:44
 ---
 

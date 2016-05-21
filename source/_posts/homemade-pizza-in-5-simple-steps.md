@@ -10,10 +10,7 @@ tags:
   - veganism
 id: 310
 categories:
-  - Foodie
-  - Nutrition
   - Recipes
-  - Vegan
 date: 2014-11-17 21:59:48
 ---
 

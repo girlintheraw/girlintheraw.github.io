@@ -4,15 +4,13 @@ tags:
   - challenge
   - Fitness
   - Instagram
-  - Instagram Challenge
   - Vegan
   - yoga
   - Yoga Challenge
   - Yoga Instructor
 id: 1417
 categories:
-  - Fitness Challenges
-  - Nutrition
+  - Fitness
   - Yoga
 date: 2015-07-14 20:47:00
 ---

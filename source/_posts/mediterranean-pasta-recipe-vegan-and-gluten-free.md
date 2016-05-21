@@ -10,11 +10,8 @@ tags:
   - Vegan
 id: 2306
 categories:
-  - Entrees
-  - Gluten Free
   - Recipes
   - Salad
-  - Vegan
 date: 2016-02-12 22:36:16
 ---
 

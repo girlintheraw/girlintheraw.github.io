@@ -20,9 +20,7 @@ tags:
 id: 252
 categories:
   - Racing
-  - 'Run, Tri &amp; Race'
   - Running
-  - Training
 date: 2014-11-10 22:00:57
 ---
 

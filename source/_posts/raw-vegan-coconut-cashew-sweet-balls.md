@@ -9,12 +9,8 @@ tags:
   - sweet balls
 id: 2328
 categories:
-  - Gluten Free
-  - Nutrition
-  - Raw
   - Recipes
   - Sweets
-  - Vegan
 date: 2016-02-15 17:43:31
 ---
 

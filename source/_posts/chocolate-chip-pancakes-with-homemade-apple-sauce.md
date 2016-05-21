@@ -9,15 +9,8 @@ tags:
   - Pancakes
 id: 1514
 categories:
+  - Recipes
   - Breakfast
-  - Breakfast
-  - Brunch
-  - Brunch
-  - Cooked
-  - Foodie
-  - Nutrition
-  - Sweets
-  - Vegan
 date: 2015-08-24 22:51:06
 ---
 

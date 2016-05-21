@@ -10,14 +10,7 @@ tags:
   - Vegan
 id: 883
 categories:
-  - Cooked
-  - Entrees
-  - Foodie
-  - Gluten Free
-  - Nutrition Talk
   - Recipes
-  - Soup
-  - Vegan
 date: 2015-04-03 23:52:48
 ---
 

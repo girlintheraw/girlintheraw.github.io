@@ -14,12 +14,8 @@ tags:
   - triathlon
 id: 564
 categories:
-  - Advice
-  - Nutrition
-  - Racing
-  - 'Run, Tri &amp; Race'
-  - Running
   - Training
+  - Running
 date: 2014-12-27 04:39:29
 ---
 

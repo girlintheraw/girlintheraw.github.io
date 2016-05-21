@@ -11,12 +11,7 @@ tags:
   - Smoothie recipe
 id: 2051
 categories:
-  - Ayurveda
-  - Breakfast
-  - Gluten Free
-  - Holidays
-  - Juices and Smoothies
-  - Raw
+  - Lifestyle
 date: 2015-12-09 18:04:08
 ---
 

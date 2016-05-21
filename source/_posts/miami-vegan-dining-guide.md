@@ -8,11 +8,7 @@ tags:
   - Vegan Travel
 id: 2303
 categories:
-  - Lifestyle
-  - Nutrition Talk
   - Reviews
-  - Travel
-  - Vegan
 date: 2016-02-18 02:25:08
 ---
 

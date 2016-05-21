@@ -9,14 +9,8 @@ tags:
   - Smoothie
 id: 2458
 categories:
-  - Fitness
-  - Gluten Free
-  - Juices and Smoothies
-  - Nutrition
-  - Recipes
   - Reviews
-  - Smoothie
-  - Vegan
+  - Nutrition
 date: 2016-03-21 19:57:20
 ---
 

@@ -10,12 +10,8 @@ tags:
   - Vegan Travel
 id: 2236
 categories:
-  - Fitness
-  - Racing
-  - 'Run, Tri &amp; Race'
-  - Running
   - Training
-  - Travel
+  - Running
 date: 2016-02-08 18:18:38
 ---
 

@@ -8,9 +8,6 @@ tags:
 id: 1859
 categories:
   - Foodie
-  - Lifestyle
-  - Travel
-  - Vegan
 date: 2015-10-06 00:24:21
 ---
 

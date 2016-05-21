@@ -10,12 +10,8 @@ tags:
   - Zucchini noodles
 id: 2447
 categories:
-  - Entrees
-  - Gluten Free
-  - Raw
   - Recipes
   - Salad
-  - Vegan
 date: 2016-03-14 20:06:17
 ---
 

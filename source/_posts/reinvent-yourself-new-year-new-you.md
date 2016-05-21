@@ -11,8 +11,6 @@ tags:
   - Yoga Challenge
 id: 622
 categories:
-  - Advice
-  - Holidays
   - Yoga
 date: 2015-01-13 01:59:29
 ---

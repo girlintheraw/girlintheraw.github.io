@@ -3,17 +3,12 @@ title: '#1MillionMinutes with SweatPink'
 tags:
   - challenge
   - Fitness
-  - Fitness Challenge
   - run
   - Running
   - Summer
   - yoga
 id: 1364
 categories:
-  - Fitness Challenges
-  - Racing
-  - 'Run, Tri &amp; Race'
-  - Running
   - Training
   - Yoga
 date: 2015-06-22 19:22:41

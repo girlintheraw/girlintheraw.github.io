@@ -11,13 +11,8 @@ tags:
   - Vegan Holidays
 id: 489
 categories:
-  - Breakfast
-  - Brunch
-  - Foodie
-  - Gluten Free
-  - Holidays
   - Recipes
-  - Vegan
+  - Breakfast
 date: 2014-12-11 02:53:22
 ---
 

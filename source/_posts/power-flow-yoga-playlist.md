@@ -8,9 +8,7 @@ tags:
   - Yoga Practice
 id: 2566
 categories:
-  - Advice
   - Fitness
-  - Lifestyle
   - Yoga
 date: 2016-04-07 13:51:20
 ---

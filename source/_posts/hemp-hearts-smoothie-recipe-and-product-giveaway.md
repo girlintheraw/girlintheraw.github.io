@@ -9,15 +9,8 @@ tags:
   - Vegan Protein
 id: 1947
 categories:
-  - Breakfast
-  - Breakfast
-  - Brunch
-  - Brunch
-  - Fitness
-  - Gluten Free
-  - Juices and Smoothies
   - Reviews
-  - Vegan Protein
+  - Juices and Smoothies
 date: 2015-11-07 22:33:25
 ---
 

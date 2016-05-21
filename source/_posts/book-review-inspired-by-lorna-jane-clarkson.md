@@ -12,9 +12,6 @@ tags:
 id: 1534
 categories:
   - Articles
-  - Book Reviews
-  - How To
-  - Lifestyle
   - Reviews
 date: 2015-08-20 22:14:14
 ---

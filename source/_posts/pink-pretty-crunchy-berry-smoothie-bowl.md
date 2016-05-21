@@ -17,13 +17,8 @@ tags:
   - Vegan
 id: 91
 categories:
-  - Breakfast
-  - Breakfast
-  - Gluten Free
-  - Raw
   - Recipes
-  - Smoothie
-  - Vegan
+  - Breakfast
 date: 2013-09-17 21:49:46
 ---
 

@@ -16,15 +16,7 @@ tags:
   - veganism
 id: 135
 categories:
-  - Advice
-  - Foodie
-  - Gluten Free
-  - Health
   - Nutrition
-  - Nutrition Talk
-  - Raw
-  - Recipes
-  - Vegan
 date: 2014-03-18 02:53:00
 ---
 

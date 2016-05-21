@@ -14,12 +14,7 @@ tags:
   - Vegan
 id: 646
 categories:
-  - Breakfast
-  - Breakfast
-  - Juices and Smoothies
-  - Raw
   - Recipes
-  - Vegan
 date: 2015-01-13 22:37:27
 ---
 

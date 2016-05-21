@@ -7,8 +7,6 @@ tags:
   - Supplements
 id: 1722
 categories:
-  - Diet
-  - Fitness
   - Reviews
 date: 2015-09-17 01:05:19
 ---

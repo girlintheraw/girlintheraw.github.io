@@ -20,12 +20,8 @@ tags:
   - Vegan
 id: 144
 categories:
-  - Gluten Free
-  - Nuts
-  - Raw
   - Recipes
   - Sweets
-  - Vegan
 date: 2014-03-26 14:49:24
 ---
 

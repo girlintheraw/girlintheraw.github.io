@@ -2,7 +2,6 @@
 title: New Year's Resolutions
 tags:
   - Change
-  - holiday
   - Holidays
   - New Year
   - New Year's Resolutions
@@ -14,13 +13,8 @@ tags:
   - yoga
 id: 595
 categories:
-  - Advice
-  - Articles
-  - Health
-  - Nutrition Plan
-  - Racing
   - Training
-  - Yoga
+  - Racing
 date: 2014-12-30 21:16:25
 ---
 

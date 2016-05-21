@@ -10,15 +10,8 @@ tags:
   - Vegan Protein
 id: 1744
 categories:
+  - Recipes
   - Breakfast
-  - Brunch
-  - Juices and Smoothies
-  - Nutrition
-  - Raw
-  - Smoothie
-  - Summer
-  - Vegan
-  - Vegan Protein
 date: 2015-09-22 20:06:03
 ---
 

@@ -12,12 +12,7 @@ tags:
   - Veggies
 id: 947
 categories:
-  - Ayurveda
-  - Cooked
-  - Entrees
-  - Foodie
   - Recipes
-  - Vegan
 date: 2015-04-25 02:07:30
 ---
 

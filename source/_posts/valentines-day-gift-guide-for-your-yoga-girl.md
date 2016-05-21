@@ -15,8 +15,6 @@ tags:
 id: 749
 categories:
   - Advice
-  - Holidays
-  - Yoga
 date: 2015-02-11 06:02:00
 ---
 

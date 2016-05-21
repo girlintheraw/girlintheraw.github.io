@@ -10,12 +10,8 @@ tags:
   - Vegan
 id: 2386
 categories:
-  - Breakfast
-  - Breakfast
-  - Gluten Free
-  - Juices and Smoothies
-  - Nutrition
   - Recipes
+  - Breakfast
 date: 2016-02-27 03:57:48
 ---
 

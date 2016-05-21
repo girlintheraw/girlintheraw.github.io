@@ -11,13 +11,8 @@ tags:
   - workout
 id: 1395
 categories:
-  - How To
-  - Nutrition
-  - Racing
-  - 'Run, Tri &amp; Race'
-  - Running
-  - Summer
   - Training
+  - Running
 date: 2015-07-08 00:58:38
 ---
 

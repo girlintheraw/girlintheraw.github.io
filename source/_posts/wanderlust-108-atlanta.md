@@ -10,11 +10,7 @@ tags:
   - yoga festival
 id: 2586
 categories:
-  - Fitness
-  - Racing
   - Reviews
-  - Summer
-  - Travel
   - Yoga
 date: 2016-04-13 02:51:18
 ---

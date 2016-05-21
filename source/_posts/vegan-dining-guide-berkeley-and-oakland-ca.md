@@ -10,8 +10,6 @@ tags:
 id: 1687
 categories:
   - Advice
-  - Diet
-  - Foodie
   - Travel
 date: 2015-09-14 20:58:37
 ---

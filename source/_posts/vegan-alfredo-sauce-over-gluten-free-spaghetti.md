@@ -10,9 +10,8 @@ tags:
   - Vegan Recipe
 id: 1840
 categories:
-  - Entrees
   - Recipes
-  - Vegan
+  - Entrees
 date: 2015-10-02 00:53:04
 ---
 

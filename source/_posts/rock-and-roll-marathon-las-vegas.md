@@ -9,12 +9,8 @@ tags:
   - Vegas
 id: 1972
 categories:
-  - Advice
   - Fitness
-  - Racing
-  - 'Run, Tri &amp; Race'
   - Training
-  - Travel
 date: 2015-11-27 04:03:20
 ---
 

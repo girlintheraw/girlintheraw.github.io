@@ -8,11 +8,8 @@ tags:
   - recipes
 id: 1905
 categories:
-  - Breakfast
-  - Gluten Free
-  - Raw
   - Recipes
-  - Vegan
+  - Breakfast
 date: 2015-10-09 05:41:43
 ---
 

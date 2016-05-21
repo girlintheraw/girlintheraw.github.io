@@ -9,9 +9,8 @@ tags:
   - Vegan Holidays
 id: 2023
 categories:
-  - Breakfast
-  - Holidays
   - Recipes
+  - Breakfast
 date: 2015-12-05 18:58:50
 ---
 

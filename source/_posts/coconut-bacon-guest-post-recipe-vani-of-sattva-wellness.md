@@ -8,14 +8,7 @@ tags:
   - Vegan Recipe
 id: 2498
 categories:
-  - Advice
-  - Baked Goods
-  - Cooked
-  - Gluten Free
-  - Nutrition Talk
-  - Recipes
-  - Snacks
-  - Vegan
+  - Nutrition
 date: 2016-04-05 14:39:53
 ---
 

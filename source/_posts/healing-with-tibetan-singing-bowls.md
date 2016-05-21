@@ -8,13 +8,10 @@ tags:
   - Tibetan Singing Bowls
   - wellness
   - yoga
+  - Ayurveda
 id: 852
 categories:
-  - Advice
   - Articles
-  - Ayurveda
-  - Healing
-  - Health
   - Yoga
 date: 2015-04-02 02:13:19
 ---

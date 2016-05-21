@@ -10,11 +10,8 @@ tags:
   - Pesto
 id: 1426
 categories:
-  - Cooked
-  - Entrees
-  - Foodie
+  - Recipes
   - Gluten Free
-  - Vegan
 date: 2015-07-20 17:32:41
 ---
 

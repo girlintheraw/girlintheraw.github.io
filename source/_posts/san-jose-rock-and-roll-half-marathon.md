@@ -12,9 +12,6 @@ id: 1800
 categories:
   - Racing
   - 'Run, Tri &amp; Race'
-  - Running
-  - Training
-  - Travel
 date: 2015-09-30 01:08:41
 ---
 

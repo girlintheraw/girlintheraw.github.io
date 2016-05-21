@@ -12,12 +12,8 @@ tags:
   - Vegan
 id: 1278
 categories:
-  - Racing
-  - 'Run, Tri &amp; Race'
-  - Running
   - Training
-  - Travel
-  - Vegan
+  - Running
 date: 2015-06-03 20:04:54
 ---
 

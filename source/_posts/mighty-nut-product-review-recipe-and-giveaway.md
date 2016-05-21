@@ -7,11 +7,7 @@ tags:
   - Vegan Protein
 id: 1920
 categories:
-  - Juices and Smoothies
-  - Recipes
   - Reviews
-  - Smoothie
-  - Vegan Protein
 date: 2015-10-19 23:05:01
 ---
 

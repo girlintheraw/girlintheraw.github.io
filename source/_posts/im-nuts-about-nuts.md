@@ -13,13 +13,7 @@ tags:
   - Vegan
 id: 24
 categories:
-  - Advice
-  - Gluten Free
-  - Health
   - Nutrition
-  - Nuts
-  - Raw
-  - Vegan
 date: 2013-06-05 16:02:10
 ---
 

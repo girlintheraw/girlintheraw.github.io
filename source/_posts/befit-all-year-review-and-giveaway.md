@@ -9,14 +9,7 @@ tags:
   - Review
 id: 2394
 categories:
-  - Diet
-  - Fit
   - Fitness
-  - Fitness Challenges
-  - Lifestyle
-  - Nutrition
-  - Reviews
-  - Training
 date: 2016-02-25 03:44:39
 ---
 

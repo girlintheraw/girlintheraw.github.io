@@ -13,7 +13,7 @@ tags:
   - Training
 id: 1451
 categories:
-  - Uncategorized
+  - Training
 date: 2015-08-11 20:26:41
 ---
 

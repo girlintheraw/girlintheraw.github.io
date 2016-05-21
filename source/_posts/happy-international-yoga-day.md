@@ -12,10 +12,6 @@ tags:
   - Yoga Instructor
 id: 1359
 categories:
-  - Healing
-  - Health
-  - Summer
-  - Training
   - Yoga
 date: 2015-07-11 06:35:48
 ---

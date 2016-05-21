@@ -11,14 +11,7 @@ tags:
   - yoga therapy
 id: 1329
 categories:
-  - Healing
   - Health
-  - How To
-  - Racing
-  - 'Run, Tri &amp; Race'
-  - Running
-  - Yoga
-  - Yoga Therapy
 date: 2015-06-17 20:13:11
 ---
 

@@ -11,10 +11,7 @@ tags:
   - Vegan Restaurants
 id: 2171
 categories:
-  - Lifestyle
-  - Nutrition
   - Reviews
-  - Travel
 date: 2016-01-13 20:11:53
 ---
 

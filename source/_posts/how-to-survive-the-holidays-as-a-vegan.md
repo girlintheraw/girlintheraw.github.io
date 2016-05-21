@@ -7,12 +7,7 @@ tags:
   - Vegan Lifestyle
 id: 2135
 categories:
-  - Advice
-  - Holidays
-  - How To
   - Lifestyle
-  - Nutrition
-  - Vegan
 date: 2015-12-29 02:52:15
 ---
 

@@ -11,10 +11,8 @@ tags:
   - Vegan
 id: 2426
 categories:
-  - How To
-  - Juices and Smoothies
-  - Nutrition
   - Recipes
+  - Juices and Smoothies
 date: 2016-03-08 03:43:30
 ---
 

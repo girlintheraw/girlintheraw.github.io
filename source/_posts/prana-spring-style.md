@@ -8,8 +8,6 @@ tags:
   - yoga pants
 id: 2507
 categories:
-  - Fitness
-  - Lifestyle
   - Reviews
   - Yoga
 date: 2016-04-01 20:14:00

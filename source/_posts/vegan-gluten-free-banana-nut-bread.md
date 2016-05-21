@@ -8,11 +8,6 @@ tags:
   - Holiday recipe
 id: 2112
 categories:
-  - Baked Goods
-  - Breakfast
-  - Brunch
-  - Gluten Free
-  - Holidays
   - Recipes
   - Sweets
 date: 2015-12-26 02:08:29

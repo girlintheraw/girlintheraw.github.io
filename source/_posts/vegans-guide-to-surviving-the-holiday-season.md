@@ -13,10 +13,7 @@ tags:
   - Vegan Holidays
 id: 462
 categories:
-  - Advice
   - Health
-  - Nutrition Plan
-  - Vegan
 date: 2014-12-11 01:25:32
 ---
 

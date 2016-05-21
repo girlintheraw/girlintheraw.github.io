@@ -16,13 +16,8 @@ tags:
   - Walnuts
 id: 123
 categories:
-  - Foodie
-  - Gluten Free
-  - Health
-  - Nutrition
-  - Raw
   - Recipes
-  - Vegan
+  - Dessert
 date: 2014-01-15 21:30:16
 ---
 

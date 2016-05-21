@@ -9,11 +9,7 @@ tags:
 id: 1507
 categories:
   - Fitness
-  - Racing
-  - 'Run, Tri &amp; Race'
   - Running
-  - Summer
-  - Travel
 date: 2015-09-02 20:38:56
 ---
 

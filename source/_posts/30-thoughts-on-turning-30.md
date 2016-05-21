@@ -13,11 +13,7 @@ tags:
   - Yoga Challenge
 id: 2214
 categories:
-  - Advice
-  - Articles
-  - Healing
   - Lifestyle
-  - Travel
 date: 2016-01-28 15:02:43
 ---
 

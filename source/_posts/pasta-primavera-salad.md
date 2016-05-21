@@ -14,13 +14,8 @@ tags:
   - Veggies
 id: 1234
 categories:
-  - Cooked
-  - Entrees
-  - Foodie
-  - Gluten Free
   - Recipes
   - Salad
-  - Vegan
 date: 2015-05-01 20:36:08
 ---
 

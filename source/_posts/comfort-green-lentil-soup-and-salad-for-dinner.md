@@ -12,14 +12,7 @@ tags:
   - Veggies
 id: 1262
 categories:
-  - Cooked
-  - Entrees
-  - Gluten Free
-  - Nutrition
-  - Salad
-  - Soup
-  - Vegan
-  - Vegan Protein
+  - Recipes
 date: 2015-05-15 19:58:39
 ---
 

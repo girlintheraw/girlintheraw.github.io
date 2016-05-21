@@ -16,14 +16,8 @@ tags:
   - yoga
 id: 165
 categories:
-  - Advice
   - Articles
   - Healing
-  - Health
-  - Nutrition
-  - Raw
-  - Uncategorized
-  - Yoga
 date: 2014-06-25 02:07:28
 ---
 

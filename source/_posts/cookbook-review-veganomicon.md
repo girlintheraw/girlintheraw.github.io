@@ -13,12 +13,8 @@ tags:
   - Vegan Cooking
 id: 829
 categories:
-  - Advice
-  - Book Reviews
-  - Foodie
-  - Nutrition Talk
-  - Recipes
   - Reviews
+  - Book Reviews
 date: 2015-02-28 04:42:04
 ---
 
