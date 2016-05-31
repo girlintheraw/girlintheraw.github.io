@@ -36,7 +36,7 @@ If a pose is a novelty, give it a try and you might learn something new, and if
 
 &nbsp;
 
-[![challenge-graphic-2](http://girlintheraw.com/wp-content/uploads/2014/10/challenge-graphic-2.jpg)](http://girlintheraw.com/wp-content/uploads/2014/10/challenge-graphic-2.jpg)
+![](/images/challenge-graphic-2.jpg)
 
 As the challenge is happening on Instagram, we are also tracking your participation there. To participate, you will need to do the following:
 
@@ -63,7 +63,7 @@ Following are days 1-5 of the challenge, with my variations of the poses and de
 
 ### <span style="color: #222222;">Parivritta Eka Pada Adho Mukha Svanasana (Revolved one legged downward facing dog)</span>
 
-[![1.jpg](http://girlintheraw.com/wp-content/uploads/2014/10/1.jpg)](http://girlintheraw.com/wp-content/uploads/2014/10/1.jpg)
+![](/images/1.jpg)
 
 &nbsp;
 
@@ -87,7 +87,7 @@ Day 2 of #shiftyourpractice is vinyasa! We are starting our challenge with the b
 
 &nbsp;
 
-[![2](http://girlintheraw.com/wp-content/uploads/2014/10/2.png)](http://girlintheraw.com/wp-content/uploads/2014/10/2.png)
+![](/images/2.png)
 
 <span style="color: #222222;" data-reactid=".1o.0.0.0.0.0.0.1.0.0.0.0.1.2:1.0">A nice backbend for the weekend - opening your heart on the physical &amp; energetically level is one of the most rewarding part of yoga! My variation is baby cobra or bhujangasana, the first level of the pose. Important difference between an up dog &amp; cobra is - in cobra your legs and hips are ON the mat! With your toes untucked, press the tops of your feet and toe nails into the mat. Engage your legs and glutes, get your inner thighs to touch. Palms under your shoulders, press your fingertips into the mat and lift your head and chest off the mat. Maintain your elbows bent and pressing into your ribs, engaging your rhomboids to bring your shoulder blades together. Cobra is more about your back body strength and engagement of back muscles than relying on your palms. Now have fun with it! Check out the girls for other variations.</span>[@veganyogiunicorn](http://instagram.com/veganyogiunicorn)<span style="color: #222222;" data-reactid=".1o.0.0.0.0.0.0.1.0.0.0.0.1.2:1.2"> </span>[@yinandjuice](http://instagram.com/yinandjuice)<span style="color: #222222;" data-reactid=".1o.0.0.0.0.0.0.1.0.0.0.0.1.2:1.4"> </span>[@rima_danielle](http://instagram.com/rima_danielle)[@mindyvegan](http://instagram.com/mindyvegan)<span style="color: #222222;" data-reactid=".1o.0.0.0.0.0.0.1.0.0.0.0.1.2:1.8">. I like seeing all the stuff you guys came up with so far, keep it up and #shiftyourmind, #shiftyourpractice.</span>
 
@@ -98,7 +98,7 @@ Day 2 of #shiftyourpractice is vinyasa! We are starting our challenge with the b
 
 ### Salabasana (Locust)
 
-[![OLYMPUS DIGITAL CAMERA](http://girlintheraw.com/wp-content/uploads/2014/10/3.jpg)](http://girlintheraw.com/wp-content/uploads/2014/10/3.jpg)
+![](/images/3.jpg)
 
 &nbsp;
 <div class="ibContent" data-reactid=".3c.0.0.0.0.0.0.1.0.0.0.0.1"><span data-reactid=".3c.0.0.0.0.0.0.1.0.0.0.0.1.2:1"><span data-reactid=".3c.0.0.0.0.0.0.1.0.0.0.0.1.2:1.0">Start a brand new week with some spine-healthy #yoga! Day 4 of #shiftyourpractice is here, and we are sticking to our backbend theme. Today we are practicing locus or salabhasana, with me presenting a basic variation. Salabhasana is a backbend where we are fully experiencing the strength of our back muscles, specially rhomboids and erector spinae (the muscles that pull the shoulder blades together, and muscles that extend down the spinal column, respectively). In locust our body is learning to use its posterior muscular strength, as we are not pushing our arms into the ground to help lift the chest. We are also using our glutes and inner thighs to lift and maintain our legs up. In general, we use our front body muscles more than back body (think abs, pecs etc), however for a healthy spine and good posture those muscles of the back are crucial. This is an easy pose to get into after cobra (day 3), and they are great preps for deeper backbends. Start with arms by your side, with bent elbows like chaturanga. Bring your shoulders down and back, feet together with toes pressing into the mat. Engage your core &amp; glutes and lift everything off the floor - your head, chest, arms and legs. Hold for 5 breaths and work on lifting higher with each inhale. For the record, I Do Not Enjoy this pose - but it's one of those "soo good for you" asanas that it's a must in our challenge :)! Check out the girls for more variations, including a deep chin stand backbend. Play and share your asana! </span></span></div>
@@ -108,7 +108,7 @@ Day 2 of #shiftyourpractice is vinyasa! We are starting our challenge with the b
 
 ### Danurasana (Bow)
 
-###  [![bow](http://girlintheraw.com/wp-content/uploads/2014/10/bow.jpg)](http://girlintheraw.com/wp-content/uploads/2014/10/bow.jpg)
+###  ![](/images/bow.jpg)
 
 <div class="ImageBlock Voice Story" data-reactid=".3r.0.0.0.0.0.0.1.0.0.0.0">
 <div class="ibContent" data-reactid=".3r.0.0.0.0.0.0.1.0.0.0.0.1">Going all the way with backbends for our 5th #shiftyourpractice day! Urdhva dhanurasana or upward facing bow pose. I'm getting a bit funky with my variation today! You can play with your bow and grab one leg at a time, and feeling a deeper stretch in your back one side than the other. And if you are even more adventurous, switch up your mat for a person and do a balance act on top of a backbend. This is called partner or acro yoga. You may not go as deep in this position, but the advantage of this variation is in proper placement of your base's feet at your pelvis just on or a bit over the ASIS bones. This way you have localized your foundation and can freely feel the rest of your body in the air - lifting your chest, head, thighs, everything else up! Whether on a person or a mat, lift up into bow first, then release one arm/leg at a time. Maintain the engagement in your gluteus, bringing the shoulder blades together, and overall use the back body strength to keep you lifted. I love acro &amp; it's so much fun, specially on the sand - less fear when falling helps try this funky stuff out!</div>

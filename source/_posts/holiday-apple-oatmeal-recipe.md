@@ -18,13 +18,13 @@ date: 2015-12-05 18:58:50
 
 Vegan Thanksgiving was very&nbsp;successful in my house this year, with Acyuta and I attending the <span style="text-decoration: underline;">**The Asheville Vegan Society**</span> Meet-up on Wednesday with another 100 veg lovers and enthusiasts - yes, <span style="text-decoration: underline;">**100 people**</span>! How great is that? I really can't emphasize the association of other vegetarians and vegans, animal lovers and animal rights activists, specially in times like these. A lot of us can get lonely around the holidays, specially if you are the only one in your family or friend group that is a plant-based eater. It always reminds me all those hilarious memos I see on my Instagram feed:
 
-[![vegfriendsmeme](http://girlintheraw.com/wp-content/uploads/2015/12/vegfriendsmeme.jpg)](http://girlintheraw.com/wp-content/uploads/2015/12/vegfriendsmeme.jpg)
+![](/images/vegfriendsmeme.jpg)
 
 Unfortunately, for some of us veggie 'weirdos', that's real life too... That's why I love[ Meet-up](http://www.meetup.com/)&nbsp;(if you've never used it yet, you simply must check your local one out!), and every time I move, like now, I immediately join the local vegan, vegetarian, raw food groups and voila - I've got veg friends in real life too!
 
 A local Asheville restaurant Eden Out provided this delicious goodness. The plates were only $15 (I was absolutely amazed), and half of the proceedings went back to the Vegan Society. It was a score all around!
 
-[caption id="attachment_2034" align="aligncenter" width="960"][![veganthanksgiving2](http://girlintheraw.com/wp-content/uploads/2015/12/veganthanksgiving2-960x720.jpg)](http://girlintheraw.com/wp-content/uploads/2015/12/veganthanksgiving2.jpg) I know the picture is not the most artistic, but I assure you the meal was absolutely amazing![/caption]
+![](/images/veganthanksgiving2.jpg) I know the picture is not the most artistic, but I assure you the meal was absolutely amazing![/caption]
 
 I couldn't skip on cooking at home myself, so I made a Tofurkey roast, mashed potatoes and gravy, and other delicious things at home just for the two of us (the next day). As a European, I obviously didn't grow up celebrating (this) Thanksgiving, but with the years I've grown fond of holidays in general. And as a national turkey (murder) day, I was very happy to support a non-aggressive, plant based celebration of the holiday.
 
@@ -34,7 +34,7 @@ All of that celebrating and eating got me inspired in the kitchen, so I decided 
 
 &nbsp;
 
-[![holidayoat2](http://girlintheraw.com/wp-content/uploads/2015/12/holidayoat2-960x703.jpg)](http://girlintheraw.com/wp-content/uploads/2015/12/holidayoat2.jpg)
+![](/images/holidayoat2.jpg)
 
 &nbsp;
 

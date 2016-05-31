@@ -20,7 +20,7 @@ The holiday season is near and you've got some family visiting to do! Before you
 
 Just look how beautiful they are...
 
-[![OLYMPUS DIGITAL CAMERA](http://girlintheraw.com/wp-content/uploads/2014/12/GFP4.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/GFP4.jpg)
+![](/images/GFP4.jpg)
 
 Ah... much better.
 
@@ -38,7 +38,7 @@ Sometimes, expecting to move the annual Christmas dinner from your mom's to your
 
 You will hit many targets in one swing by making them vegan and gluten free. From your sister's kid allergic to eggs to your fitness-freak cousin trying out paleo, this meal can satisfy many dietary needs while still delivering a delicious treat!
 
-[caption id="attachment_1104" align="alignnone" width="1774"][![Did I mention how pretty this pancakes are?](http://girlintheraw.com/wp-content/uploads/2014/12/GFPAN5.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/GFPAN5.jpg) Did I mention how pretty this pancakes are?[/caption]
+![](/images/GFPAN5.jpg) Did I mention how pretty this pancakes are?[/caption]
 
 Making gluten free anything is not easy! There I said it. Gluten makes flours glue together easily, while GF doughs fall apart and crumble like anything. It takes some getting used to, and you may need to add or subtract some ingredients. I played with the recipe and managed to create pancakes in one piece - **success**!
 
@@ -63,7 +63,7 @@ _{dairy free, egg free, soy free, sugar free}_
 *   1-2 drops of coconut oil for frying (omit if you have a non-stick frying pan)
 *Oats are naturally a gluten free grain, but may be mixed with gluten while processing. If you have a gluten sensitivity or allergy, you are advised to buy GF certified oats. Otherwise, if you just like to avoid gluten because you feel better and healthier, like I do, you can use regular oats (I buy bulk organic at Whole Foods Market). Oat flour really makes these pancakes come together and prevents crumbling.
 
-[![GFPAN2.jpg](http://girlintheraw.com/wp-content/uploads/2014/12/GFPAN2.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/GFPAN2.jpg)
+![](/images/GFPAN2.jpg)
 
 **PROCESS**:
 
@@ -79,13 +79,13 @@ _{dairy free, egg free, soy free, sugar free}_
 
 6\. The mixture will not be as liquid as your regular, white flour pancake mix. It is actually pretty dry looking, as you can see by the pictures.
 
-[![ GFPAN3.jpg](http://girlintheraw.com/wp-content/uploads/2014/12/GFPAN3.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/GFPAN3.jpg)
+![](/images/GFPAN3.jpg)
 
 7\. Heat up the frying pan and add a tbsp of coconut oil if needed. Take a big soup spoon and scoop your pancake mixture onto a hot pan. Tap the spoon on top to flatten the mixture and form a pancake like shape - remember, it won't be so runny.
 
 8\. Lowe the heat a bit and fry for 3-4 minutes before flipping, you want them to be as firmed up as possible to avoid crumbling. I like to cover my pan to cook the top of the pancake at the same time as well. After flipping, cook for about a minute on the other side. Set aside and cover to preserve warmth.
 
-[![GFP13.jpg](http://girlintheraw.com/wp-content/uploads/2014/12/GFP13.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/GFP13.jpg)
+![](/images/GFP13.jpg)
 
 9\. Serve and enjoy! I like to top mine with as many delicious ingredients I can find, and have tons of fruit and toppings available on the side. Even tough these are gluten free and much lighter than your average pancake, they can be pretty heavy if you are used to eating light. That's why I always pair them with lots of fresh fruits.
 
@@ -93,7 +93,7 @@ _{dairy free, egg free, soy free, sugar free}_
 
 You may notice there is **no sugar** in the pancakes. My mom taught me this a long time ago - sugar of any kind melts and sticks to the pan! If you want you cakes perfect, avoid it. Banana offers a nice sweet taste to them without being overpowering, and then you can go nuts with your sweet toppings.
 
-[![GFP5.jpg](http://girlintheraw.com/wp-content/uploads/2014/12/GFP5.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/GFP5.jpg)
+![](/images/GFP5.jpg)
 
 **BERRY YOGURT**
 
@@ -103,11 +103,11 @@ You may notice there is **no sugar** in the pancakes. My mom taught me this a l
 
 1 banana (optional)
 
-Blend and enjoy! Adding more fruit will make it lighter, more yogurt - creamier. This is one of my favorite light toppings for pancakes, its fruity and breakfast-y, yet very filling so I avoid all the heavy and sugary syrups.[![GFP3.jpg](http://girlintheraw.com/wp-content/uploads/2014/12/GFP3.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/GFP3.jpg)
+Blend and enjoy! Adding more fruit will make it lighter, more yogurt - creamier. This is one of my favorite light toppings for pancakes, its fruity and breakfast-y, yet very filling so I avoid all the heavy and sugary syrups.![](/images/GFP3.jpg)
 
 &nbsp;
 
-[![GFP10.jpg](http://girlintheraw.com/wp-content/uploads/2014/12/GFP10.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/GFP10.jpg)
+![](/images/GFP10.jpg)
 
 MY TOPPINGS:
 
@@ -127,19 +127,19 @@ OPTIONAL TOPPINGS:
 *   Coconut nectar or sugar
 *   Cinnamon
 *   Jams and Preserves - that's how we eat thin pancakes (crepes) in Croatia! Apricot is my favorite
-[![GFP1.jpg](http://girlintheraw.com/wp-content/uploads/2014/12/GFP1.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/GFP1.jpg)
+![](/images/GFP1.jpg)
 
 I served my brunch with a nice big plate of fresh fruit. Persimmon is in season, as well as apples and mandarines. Bananas are always around, and they are super tasty on pancakes, so I threw some in the mix as well.
 
-[![GFPAN4.jpg](http://girlintheraw.com/wp-content/uploads/2014/12/GFPAN4.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/GFPAN4.jpg)
+![](/images/GFPAN4.jpg)
 
 &nbsp;
 
-[![GFP7.jpg](http://girlintheraw.com/wp-content/uploads/2014/12/GFP7.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/GFP7.jpg)
+![](/images/GFP7.jpg)
 
 My Guarantee: Winning the hearts (and bellies) of all your guests - whether vegan or not! The recipe is easy and doable, even if you are an amateur cook or new to vegan or gluten free preparations. Alternatively, do a few test runs before the actual holiday brunch - you know, just to make sure they turn out right!
 
-[caption id="attachment_1114" align="alignnone" width="1883"][![OLYMPUS DIGITAL CAMERA](http://girlintheraw.com/wp-content/uploads/2014/12/GFP41.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/GFP41.jpg) OLYMPUS DIGITAL CAMERA[/caption]
+![](/images/GFP41.jpg) OLYMPUS DIGITAL CAMERA[/caption]
 
 **<span style="color: #666699;">_Have a happy healthy holiday season, _</span>**
 

@@ -17,7 +17,7 @@ One of the very first foods I discovered when I began my trip into rawfood land 
 
 The magic of flax seeds is that when soaking them, they will become a little gooey and sticky, even more than chia seeds. That makes them an incredible raw food asset. It's hard to replicate the stickiness of flour or gluten, as well as texture of baked or cooked goods. One thing I like to mix with flax seeds is veggie or fruit leftovers from juicing! That's a great way to recycle and not waste food with valuable nutrients, like the fiber left over from extraction. This recipe includes prepped veggies, but if you have any juicing leftovers - use it.
 
-[![p3190829.jpg](http://girlintheraw.com/wp-content/uploads/2015/10/P3190829-960x720.jpg)](http://girlintheraw.com/wp-content/uploads/2015/10/P3190829.jpg)
+![](/images/P3190829.jpg)
 
 #### INGREDIENTS
 
@@ -41,6 +41,6 @@ _{Vegan, Raw, Gluten-free, soy free, sugar free}_
 4.  Prep your food dehydrator. Taking a spoonful at a time, spread them on your dehydrating sheet in a cracker form. The thinner, the quicker they are ready.
 5.  Set your dehydrator to 108-116 F, and leave in for 4+ hours (depending on your dehydrator). Once they are dry enough, flip them around and dry for another 2h+.
 6.  Serve with your favorite foods and enjoy! I enjoyed mine with raw almond butter, pink lady apple slices, and strawberries for breakfast!
-[![](http://girlintheraw.com/wp-content/uploads/2015/10/P3190827-e1444368797823-960x707.jpg)](http://girlintheraw.com/wp-content/uploads/2015/10/P3190827.jpg)
+![](/images/P3190827.jpg)
 
 &nbsp;

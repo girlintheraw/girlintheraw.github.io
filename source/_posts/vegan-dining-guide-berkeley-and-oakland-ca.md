@@ -16,7 +16,7 @@ date: 2015-09-14 20:58:37
 
 There's nothing more fun than traveling, if you ask me! However, traveling as a Vegan, Vegetarian, or Raw Foodie is quite a trip on it's own! Depending on which part of the world you find yourself in, you might encounter fabulous eats, likeminded people, and even festivals and events dedicated to your favorite treats and pastimes. And then, of course, the opposite could be true.
 
-[![mill1](http://girlintheraw.com/wp-content/uploads/2015/09/mill1-960x1280.jpg)](http://girlintheraw.com/wp-content/uploads/2015/09/mill1.jpg)
+![](/images/mill1.jpg)
 
 But no matter where you are, having a good idea of what to look for is always helpful. Thankfully, we live in an era of smartphones and apps, and one visit to Google Maps, typing in Vegan, could be a lifesaver. However, as vegans are people too, we also have taste, look for good deals, and aren't always satisfied with a restaurant or a meal just because it's labeled Vegan. Hence the need for a Vegan travel guide.
 
@@ -28,7 +28,7 @@ The list of restaurants with vegan or vegetarian food options is extensive, look
 
 There are many towns in the area with fabulous vegan spots, starting from the city (San Francisco) all the way from San Jose on the south to Petaluma on the north. I am focusing only on the Berkeley and Oakland zip codes in this post.
 
-[![travelguideber](http://girlintheraw.com/wp-content/uploads/2015/09/travelguideber-960x960.jpg)](http://girlintheraw.com/wp-content/uploads/2015/09/travelguideber.jpg)
+![](/images/travelguideber.jpg)
 
 ###### VEGAN SPOTS IN BERKELEY, CA:
 
@@ -61,9 +61,9 @@ I would describe the food here as very light, healthy, and raw. This is a great 
 
 Oh yes, and all the names of the preparations are romantic and hippie, like Fulfilled, Abundant, Peace, etc. Come to think of it, very yogic as well! The plates might have nice messages on them, and they will ask you a question of the day to ponder upon.
 
-[caption id="attachment_1695" align="aligncenter" width="960"][![caf1](http://girlintheraw.com/wp-content/uploads/2015/09/caf1-960x720.jpg)](http://girlintheraw.com/wp-content/uploads/2015/09/caf1.jpg) Raw Nachos[/caption]
+![](/images/caf1.jpg) Raw Nachos[/caption]
 
-[caption id="attachment_1698" align="aligncenter" width="960"][![Quinoa Bowl and Almond Latte](http://girlintheraw.com/wp-content/uploads/2015/09/caf4-960x720.jpg)](http://girlintheraw.com/wp-content/uploads/2015/09/caf4.jpg) Quinoa Bowl and Almond Latte[/caption]
+![](/images/caf4.jpg) Quinoa Bowl and Almond Latte[/caption]
 
 ##### 5\. [Saturn Cafe](http://saturncafe.com/)
 
@@ -89,9 +89,9 @@ You are definitely paying for the ambiance, service and mood more than food, whi
 
 The play on flavors is special, and there are little nuances in recipes that separate Millennium's menu with your regular, go-to vegan bites. But I cannot say I was as impressed as I hoped I would be the first time I finally went there, after months of hearing about this restaurant's glories. I had the Tikka cake, and although made with special flavors and ingredients (such as sunchoke, and a delicious tamarind chutney), it left me a bit dry and heavy - there wasn't much salad like I said. You are getting plant based unique recipes recreated by award-winning chefs, so if you are in the mood for a fancy vegan night out, give Millennium a go.
 
-[caption id="attachment_1703" align="aligncenter" width="960"][![Tikka Masala Cake](http://girlintheraw.com/wp-content/uploads/2015/09/mill2-960x960.jpg)](http://girlintheraw.com/wp-content/uploads/2015/09/mill2.jpg) Tikka Masala Cake[/caption]
+![](/images/mill2.jpg) Tikka Masala Cake[/caption]
 
-[caption id="attachment_1704" align="aligncenter" width="960"][![Glazed Tempeh and Rice](http://girlintheraw.com/wp-content/uploads/2015/09/mill3-960x960.jpg)](http://girlintheraw.com/wp-content/uploads/2015/09/mill3.jpg) Glazed Tempeh and Rice[/caption]
+![](/images/mill3.jpg) Glazed Tempeh and Rice[/caption]
 
 ##### 2\. [Souley Vegan](http://www.souleyvegan.com/)
 
@@ -103,7 +103,7 @@ Now onto the food - big plates, great price! You can feed 2 hungry vegans for so
 
 From all the places in the Bay, except maybe Herbivore, I eat here most often. That must speak for something!
 
-[caption id="attachment_1707" align="aligncenter" width="960"][![souleyveg1](http://girlintheraw.com/wp-content/uploads/2015/09/souleyveg1-960x494.jpg)](http://girlintheraw.com/wp-content/uploads/2015/09/souleyveg1.jpg) Vegan Comfort Soul food at it's best[/caption]
+![](/images/souleyveg1.jpg) Vegan Comfort Soul food at it's best[/caption]
 
 ##### 3\. [Golden Lotus Vegetarian Restaurant](http://www.allmenus.com/ca/oakland/283157-golden-lotus-vegetarian-rest/menu/)
 
@@ -117,7 +117,7 @@ This is my go-to farmers market on Sundays. They sell supreme products, and you 
 
 There is a stand with raw sauerkraut, in various flavors, from Farmhouse Culture, my favorite kraut there is. You will find great vegan falafel and pita chips, some nice breads, homemade almond milk, and specialty tofu. A very popular specialty coffee stand offers delicious drinks with almond milk, I usually go for mocha - their lines are huge, so I figured I must try the coffee for myself. Besides Fort Mason Farmers Market in San Francisco, I really enjoy visiting this one and always find something delicious and new to try.
 
-[![tem2](http://girlintheraw.com/wp-content/uploads/2015/09/tem2-960x960.jpg)](http://girlintheraw.com/wp-content/uploads/2015/09/tem2.jpg)
+![](/images/tem2.jpg)
 
 ###### BONUS MARKETS:
 

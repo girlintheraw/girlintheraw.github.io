@@ -15,7 +15,7 @@ categories:
 date: 2015-07-28 19:18:14
 ---
 
-[![work5](http://girlintheraw.com/wp-content/uploads/2015/07/work5.jpg)](http://girlintheraw.com/wp-content/uploads/2015/07/work5.jpg)
+![](/images/work5.jpg)
 
 My life changes so much depending on weather, my current location, my mood.. and millions of other factors. I work on maintaining a consistent schedule and lifestyle, as it is quite detrimental for my mental health (sounds like a joke, but it's not really). It is because I love changes, and let my mind take me wherever it feels like going, that I believe it is imperative to keep some consistency to be productive, in a good mood, and healthy overall! **Ayurveda** explains it as a Vata disorder, or the disorder of the ether and air elements, and it can happen to anyone that is out of sync, traveling, going through stress or change. Being that I already have a strong Vata mind, I know from first hand experience how little it takes to throw it off balance.
 
@@ -38,7 +38,7 @@ So here we go! Take a few minutes to warm up with some cardio or plyometric move
 *   ###### **Chaturanga push-up**
 
 *   ###### **and back**
-[![work1](http://girlintheraw.com/wp-content/uploads/2015/07/work1.jpg)](http://girlintheraw.com/wp-content/uploads/2015/07/work1.jpg)**Downward facing dog** is a staple in any yoga class, and it's a great pose to build upper body strength as well as increase shoulder and back flexibility. Start with your palms shoulder distance apart, spread the fingers wide and engage your arms. Lift the hips up high and find length in your spine - when tight, people tend to round the upper back. If that happens, you can even bend your knees, but work on keeping the spine straight. You should feel a stretch here. If your spine is straight, straighten the legs and lower the heels towards the ground - they don't have to touch, but it's a great stretch for the backs of your legs, hamstrings and calves.
+![](/images/work1.jpg)**Downward facing dog** is a staple in any yoga class, and it's a great pose to build upper body strength as well as increase shoulder and back flexibility. Start with your palms shoulder distance apart, spread the fingers wide and engage your arms. Lift the hips up high and find length in your spine - when tight, people tend to round the upper back. If that happens, you can even bend your knees, but work on keeping the spine straight. You should feel a stretch here. If your spine is straight, straighten the legs and lower the heels towards the ground - they don't have to touch, but it's a great stretch for the backs of your legs, hamstrings and calves.
 
 With control shift forward into **Plank**. Palms and feet shouldn't ideally move when going from plank to down dog and the other way, so find your ideal distance. Take a few breaths in plank.
 
@@ -49,7 +49,7 @@ Maintain your body in a straight line and lower down into **Low Push-up or Chatu
 *   ###### **Jump squats**
 
 *   ###### **Lunge**
-[![work2](http://girlintheraw.com/wp-content/uploads/2015/07/work2.jpg)](http://girlintheraw.com/wp-content/uploads/2015/07/work2.jpg)
+![](/images/work2.jpg)
 
 Time to bring our heart rate up and move a bit faster!
 
@@ -68,9 +68,9 @@ REPEAT 10x jump squats, then hold your squat for 10 breaths. If this feels easy/
 *   ###### **Side Plank**
 
 *   ###### **Side Plank with leg raise**
-[![work3](http://girlintheraw.com/wp-content/uploads/2015/07/work3.jpg)](http://girlintheraw.com/wp-content/uploads/2015/07/work3.jpg)
+![](/images/work3.jpg)
 
-[![work4](http://girlintheraw.com/wp-content/uploads/2015/07/work4.jpg)](http://girlintheraw.com/wp-content/uploads/2015/07/work4.jpg)
+![](/images/work4.jpg)
 
 **Planks** and variations are by far my favorite core workouts, because they really work the whole body.
 

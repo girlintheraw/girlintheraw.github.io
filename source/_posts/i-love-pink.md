@@ -22,7 +22,7 @@ date: 2014-03-18 02:53:00
 
 Just for the record, I loved the color pink way before it was in style (and got out of style, and came back.. no one knows the real status today!). I loved it as a kid, I wore it all through my hight school rave party stage. I wear pink to yoga and on elegant occasions - which are many, thank you for asking. Even my baby pups, although a boy, wears, chews and sleeps on only pink!
 
-[![zen](http://girlintheraw.com/wp-content/uploads/2014/03/zen.jpeg)](http://girlintheraw.com/wp-content/uploads/2014/03/zen.jpeg)
+![zen](http://girlintheraw.com/wp-content/uploads/2014/03/zen.jpeg)](http://girlintheraw.com/wp-content/uploads/2014/03/zen.jpeg)
 
 _Before you call the humane society to report animal cruelty, let me just say he doesn't care what color his leash, bed and doggie jacket are! He is 'color blind' anyways. Or better yet, he loves it! He rocks pink all day long._
 
@@ -50,7 +50,7 @@ Unfortunately, most of our foods are loosing their natural properties detected b
 
 &nbsp;
 
-##### [![coco4](http://girlintheraw.com/wp-content/uploads/2014/03/coco4.jpg)](http://girlintheraw.com/wp-content/uploads/2014/03/coco4.jpg)
+##### ![](/images/coco4.jpg)
 
 ##### <span style="color: #f84dbb;">Pretty in Pink </span>
 
@@ -78,6 +78,6 @@ Unfortunately, most of our foods are loosing their natural properties detected b
 
 <span style="color: #000000;">My blending has changed significantly since I got my Vitamix. This would never have been so creamy and smooth in my ol' Ninja, but use any blender you have, just make sure there are no chunks left. </span>
 
-[![coco3.jpg](http://girlintheraw.com/wp-content/uploads/2014/03/coco3.jpg)](http://girlintheraw.com/wp-content/uploads/2014/03/coco3.jpg)
+![](/images/coco3.jpg)
 
 &nbsp;

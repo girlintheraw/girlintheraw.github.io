@@ -20,25 +20,25 @@ Well, I have to say I've been very very lucky in this department. Sure, I've hea
 
 I've also had a few very close friends who are vegan/vegetarian chefs! Now that's winning the veg friend lottery. I've learned so much about cooking, shopping, prepping, detoxing and more from them. Having a professional at your disposal is priceless!&nbsp;
 
-[caption id="attachment_2538" align="aligncenter" width="960"][![Vanesa Dejanovic (Vani) - Health coach and vegan chef extraordinaire ](http://girlintheraw.com/wp-content/uploads/2016/04/vaniseva.jpg)](http://girlintheraw.com/wp-content/uploads/2016/04/vaniseva.jpg) Vanesa Dejanovic (Vani) - Health coach and vegan chef extraordinaire[/caption]
+![](/images/vaniseva.jpg) Vanesa Dejanovic (Vani) - Health coach and vegan chef extraordinaire[/caption]
 
 My best friend Vani is a vegan chef who used to manage a vegetarian restaurant in Miami, she's also an Ayurvedic health coach and a massage therapist. As I'm writing this, I'm looking forward to visiting her next month in May and eating her delicious cooking every day! She is a pro at do-it-yourself cooking, specially cooking from very scratch and making creative and somewhat unusual foods that most won't take the time to make at home. The woman makes her own coconut milk yogurt from fresh coconut meat (again, priceless)! Learning how to make things from scratch, grind your own flour or make kale chips can be quite transformational and life saving for a vegan!
 
-[![FullSizeRender](http://girlintheraw.com/wp-content/uploads/2016/04/FullSizeRender.jpg)](http://girlintheraw.com/wp-content/uploads/2016/04/FullSizeRender.jpg)
+![](/images/FullSizeRender.jpg)
 
 When I found out Vani made her own <span style="text-decoration: underline;">**COCONUT BACON**</span>, I flipped out! I had to have the recipe, and decided to invite her as my guest right here at Girl in The Raw. This is a delicious, yet healthy treat, that is gluten free, vegan, can be made raw, and is made with super healthy coconuts! Vani has years of experience, and has done some pretty awesome things, like lived in India to study Ayurveda, the sister science of Yoga and the ancient Vedic medicine. Here's her awesome Coconut Bacon recipe. Continue reading for a little interview and insight into Vani's life.
 
 [yumprint-recipe id='9']
 
-[caption id="attachment_2553" align="aligncenter" width="450"][![Unsweetened coconut flakes ](http://girlintheraw.com/wp-content/uploads/2016/04/coconut-flakes.jpg)](http://girlintheraw.com/wp-content/uploads/2016/04/coconut-flakes.jpg) Unsweetened coconut flakes[/caption]
+![](/images/coconut-flakes.jpg) Unsweetened coconut flakes[/caption]
 
 Now, if you want to be all cool and natural, like Vani, you might want to make your own Coconut Bacon from scratch! In that case, all you'll need is a fresh coconut, not the Thai one that we drink coconut water from on the beach, but the brown deliciously meaty kind. This coconut gives more meat than thai, and it's harder, perfect for this kind of a preparation. Thai coconut meat is soft and deliciously creamy, perfect for blending and eating with a spoon.
 
 "Opening <span class="lG">coconuts</span> and taking out big pieces of&nbsp;<span class="lG">coconut</span> meat is little complicated at first and requires some practice.", says Vani. "After you open the <span class="lG">coconut</span> you have to try to take out as many big pieces of <span class="lG">coconut</span> meat as possible, which you then slice into strips with potato peeler. So the bigger pieces you get the better."&nbsp;
 
-[![IMG_8919](http://girlintheraw.com/wp-content/uploads/2016/04/IMG_8919.jpg)](http://girlintheraw.com/wp-content/uploads/2016/04/IMG_8919.jpg)
+![](/images/IMG_8919.jpg)
 
-[![IMG_8921](http://girlintheraw.com/wp-content/uploads/2016/04/IMG_8921.jpg)](http://girlintheraw.com/wp-content/uploads/2016/04/IMG_8921.jpg)
+![](/images/IMG_8921.jpg)
 
 I wanted to take this opportunity and <span style="text-decoration: underline;">**interview Vani**</span>, since she has some cool lifestyle and vegan cooking experience to share. That is to say, I didn't want to be rude and just steal her delicious recipe&nbsp;and send her on her way... Which is what I do in real life all too often! (Tip: this is the way to become an awesome vegan chef, ask and ask questions and get recipes from people who know what they are doing!)
 

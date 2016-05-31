@@ -14,7 +14,7 @@ categories:
 date: 2015-06-22 19:22:41
 ---
 
-[![1MM](http://girlintheraw.com/wp-content/uploads/2015/06/1MM.png)](http://girlintheraw.com/wp-content/uploads/2015/06/1MM.png)
+![](/images/1MM.png)
 
 I am so excited to join #1MillionMinutes with SweatPink! This summer my goal is to do 3000 minutes of running, while wearing my favorite pink running shoes.
 

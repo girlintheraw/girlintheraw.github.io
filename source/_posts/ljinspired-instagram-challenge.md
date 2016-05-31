@@ -15,7 +15,7 @@ categories:
 date: 2015-07-14 20:47:00
 ---
 
-[![lornajane](http://girlintheraw.com/wp-content/uploads/2015/07/lornajane.png)](http://girlintheraw.com/wp-content/uploads/2015/07/lornajane.png)
+![](/images/lornajane.png)
 
 I believe that the key to a happy life is finding your inner connection. Connection inspires me to be the balanced person that I am today. I am lucky to have my mom and my husband in my life because they inspire me to live life to my fullest and to chase my dreams.
 
@@ -45,6 +45,6 @@ Day 4 (<span class="aBn" tabindex="0" data-term="goog_130052292"><span class="aQ
 
 Day 5 (<span class="aBn" tabindex="0" data-term="goog_130052293"><span class="aQJ">Friday, July 17th</span></span>): What makes you an #LJInspired girl? #sweatpink @LornaJaneActive @FitApproach
 
-[![yoga-mex](http://girlintheraw.com/wp-content/uploads/2015/07/yoga-mex.jpg)](http://girlintheraw.com/wp-content/uploads/2015/07/yoga-mex.jpg)
+![](/images/yoga-mex.jpg)
 
 Come play with us, and check out my progress in the IG challenge at [@girlintheraw!](http://instagram.com/girlintheraw)

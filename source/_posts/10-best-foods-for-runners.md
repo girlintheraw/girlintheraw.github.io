@@ -25,7 +25,7 @@ date: 2014-12-27 04:39:29
 
 Sure, running is awesome. It gives you a sense of freedom you haven't felt since you were a kid, chasing your friends around the neighborhood and playing in the mud (if you were that lucky). It's one of the best form of therapy. It's an amazing exercise program that will help you shed weight, tone legs, strengthen bones and increase cardio and lung capacity. Training gives you a purpose and racing a sense of accomplishment that very few things can top! You simply can't buy running with money and words. You can't fake it. It's all hard earned work.
 
-[caption id="attachment_1070" align="alignnone" width="600"][![Mud run - like a cave woman!](http://girlintheraw.com/wp-content/uploads/2014/12/mudrun.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/mudrun.jpg) Mud run - like a cave woman![/caption]
+![](/images/mudrun.jpg) Mud run - like a cave woman![/caption]
 
 But running is hard. It takes a toll on your body, and if you ever trained for a marathon, you know that - heck, it takes a tremendous toll on your mind. Running takes time, energy and some equipment that, let's all be honest, isn't as cheap as advertised. Keeping up with your routine and maintaining the body strong is a task on it's own.
 
@@ -35,7 +35,7 @@ I have read tons of articles with the same title as this one before, some with v
 
 ###### 1\. Pink Himalayan Salt
 
-[caption id="attachment_1071" align="alignnone" width="1000"][![Source: collective-evolution.com](http://girlintheraw.com/wp-content/uploads/2014/12/himalayan_pink_salt.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/himalayan_pink_salt.jpg) Source: collective-evolution.com[/caption]
+![](/images/himalayan_pink_salt.jpg) Source: collective-evolution.com[/caption]
 
 When you become a runner, you soon realize that regular rules do not apply to you anymore. While regular mortals avoid sodium and carbs as much as possible, runners fuel up with them like crazy! Those fancy gels, chews, fizzesses and powders are filled with sodium for hydration and/or simple and complex carbs for energy. Electrolytes, that are added to any before and during products for nutrition, and usually made with a combination of three minerals, namely sodium, potassium and magnesium. That is correct - sodium is a mineral. It exists for a reason and is not all BAD as it's made out to be. I actually know hard core runners who carry salt packets on runs as their main (and often only) nutrition supplement.
 
@@ -45,7 +45,7 @@ When to add sodium to your diet? In order to treat or avoid dehydration. A simpl
 
 ###### 2\. Complex Carbs
 
-[![tabul](http://girlintheraw.com/wp-content/uploads/2014/12/tabul.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/tabul.jpg)
+![](/images/tabul.jpg)
 
 Simple carbs are digested quickly, are low in fiber and high is sugar (sugar is a carb) and give you quick energy. Once that energy is burned out, however, you might crash. The gels we eat during races are easily digestible simple carbs that give us just enough energy for those extra miles without packing on too many calories.
 
@@ -59,7 +59,7 @@ Options: Dates (great to take on runs instead of gels), other dried fruits like 
 
 ###### 3\. Healthy Fats
 
-[![OLYMPUS DIGITAL CAMERA](http://girlintheraw.com/wp-content/uploads/2014/12/crackers2.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/crackers2.jpg)
+![](/images/crackers2.jpg)
 
 &nbsp;
 
@@ -71,11 +71,11 @@ Coconut oil is a queen of ingredients - from skin, to hair, to even teeth, you c
 
 Nut butters are a whole new world in themselves. From raw nuts, to sweet balls, to nut butters, I am definitely [nuts about nuts](http://girlintheraw.com/?p=24 "I’m Nuts about Nuts! And why you should be too.")! If PB is your one and only, get a high quality one - raw, organic, no added sugars, salts or oils. I love PB2 - it's a powdered version that takes most of the fat out of it, which means I can eat more since I do eat too much nuts already.
 
-###### 
+######
 
 ###### 4. Probiotic Foods
 
-[![yoghurt-smoothie](http://girlintheraw.com/wp-content/uploads/2014/12/yoghurt-smoothie.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/yoghurt-smoothie.jpg)
+![](/images/yoghurt-smoothie.jpg)
 
 There are four main categories of raw foods - raw fresh foods, sprouted, dehydrated and fermented. The latter pack in specific nutrients and healthy bacteria to heal the gut. Is gut health important for runners, you ask? Well, let me answer like this. Have you ever been in a port-a-potty line? Have you ever felt the excruciating call of nature mid-race? How about running cramps? I rest my case.
 
@@ -87,7 +87,7 @@ Kombucha is super healthy too. Honestly, I do not like it. But if you do, go fo
 
 ###### 5\. Fruit
 
-[![fruit5](http://girlintheraw.com/wp-content/uploads/2014/12/fruit5.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/fruit5.jpg)
+![](/images/fruit5.jpg)
 
 Duh! Eat your fruits. I had a few conversations in my life where people tried to convince me fruits are bad for you. Yeah, move on buddy. That argument ain't gonna fly with me. The best one was when a Vegan (yes, VEGAN) told me that! I was outraged for days. Mind you, though this may sound very critical, he did not look that _healthy_ to me. But enough of my gossiping.
 
@@ -95,7 +95,7 @@ We all know bananas are runner's buddies, and vitamin C in oranges is great for 
 
 ###### 6\. Soup
 
-[![red soup](http://girlintheraw.com/wp-content/uploads/2014/12/red-soup.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/red-soup.jpg)
+![](/images/red-soup.jpg)
 
 Grandma was right - soup is the best food ever. Specially in these cold months, a healthy soup filled with veggies, lentils and beans for vegan protein pack, or just clear veggie broths filled with that sodium we mentioned earlier.Soup gives you energy without weighting you down because it's easily digested, specially creamy soups and blends.
 
@@ -105,7 +105,7 @@ This is a great recovery meal for me - filling, healthy and there are tons of op
 
 ###### 7\. Coconut Water
 
-[![1175420_288750051264236_231584820_n](http://girlintheraw.com/wp-content/uploads/2014/12/1175420_288750051264236_231584820_n.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/1175420_288750051264236_231584820_n.jpg)
+![](/images/1175420_288750051264236_231584820_n.jpg)
 
 Coconut water get's it own category as one of the best foods/drinks in the world. It's not without it's controversy, however. Just like fruit, coconut water has been blamed to pack too much sugar and therefore isn't optimal for weight loss. Physical trainers from the gym usually sell that story, and I guess this advice has it's weight in certain situations. But for a runner or triathlete, this is the best Natural (read:not bought in a running store) electrolyte drink. From my personal experience, training in Florida was brutal most of the year, and I used to get dehydration headaches all too often, specially after races. I really saw a difference after I started drinking cool coconut water right after long training. If you can afford raw coconut water, by all means please reward yourself that experience as often as possible.
 
@@ -113,7 +113,7 @@ Coconut water get's it own category as one of the best foods/drinks in the world
 
 ###### 8\. Edamame, beans and lentils
 
-[![lentilsoup](http://girlintheraw.com/wp-content/uploads/2014/12/lentilsoup.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/lentilsoup.jpg)
+![](/images/lentilsoup.jpg)
 
 Even if you are not vegan, you can benefit from some plant-based protein sources. I always build my case on the fact that meat is hard to digest and takes a very long time. And if you want to run or exercise often (there are people that sweat even twice daily), having a light guy as opposed to a belly that weights you down is a plus! You can see a pattern here, runners should take care of their bellies even more than regular people, specially as the race day approaches.
 
@@ -127,7 +127,7 @@ Red lentils are probably my favorite, not because of the taste as much as the fa
 
 ###### 9\. Powdered supplements
 
-[![smoothie-powder](http://girlintheraw.com/wp-content/uploads/2014/12/smoothie-powder.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/smoothie-powder.jpg)
+![](/images/smoothie-powder.jpg)
 
 I am not big on supplementing when you can get the real deal in your diet, but there are a few foods I enjoy in my diet regularly. Raw protein powders are great if you feel the need for more protein in your diet or want to 'bulk up'. Green powders filled with wheat grass, barley grass and more balance the pH of the blood because of their high alkaline properties. Spirulina and chlorella are algae that fall under that all-popular superfoods category.
 
@@ -137,7 +137,7 @@ All in all, there are good supplements and bad ones. Compare the ingredients, lo
 
 ###### 10\. Nutrition bars
 
-[![cherryballs](http://girlintheraw.com/wp-content/uploads/2014/12/cherryballs.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/cherryballs.jpg)
+![](/images/cherryballs.jpg)
 
 You didn't see that one coming, now did you? Yes, it's tried and maybe true, but if you have ever driven out of the city for a run on the weekend and got stranded starving, I bet you grabbed a bar or alternatively wished you had one handy.
 
@@ -149,7 +149,7 @@ If you are a busy runner and want a store-bough solution, besides aforementioned
 
 ###### Conclusion:
 
-[![run-dora](http://girlintheraw.com/wp-content/uploads/2014/12/run-dora.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/run-dora.jpg)
+![](/images/run-dora.jpg)
 
 Why 10 best foods for _runners_? Clearly these are healthy food options for anyone. But as runners (or triathletes, or cross-fitters) push their bodies to perform, so the body needs appropriate fuel to keep going and stay healthy. Proper nutrition won't only score you more training hours or a PR at your next race. It will also aid in recovery from difficult workouts so you can get out there sooner, and aid in injury management and prevention. Running form and proper shoes may help your pronation or knee issues, but food is what gives the body tools and supplies to repair muscle tissue, tendons and ligaments, and creates the quality of blood. Eat well for long life and long miles!
 

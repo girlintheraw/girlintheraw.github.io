@@ -22,7 +22,7 @@ There are a few reasons why Pizza is on the 'no-no' list for healthy eaters, die
 
 ##### 
 
-[caption id="attachment_1138" align="alignnone" width="1920"][![Pizza? Who said pizza?](http://girlintheraw.com/wp-content/uploads/2014/11/piz8.jpg)](http://girlintheraw.com/wp-content/uploads/2014/11/piz8.jpg) Pizza? Who said pizza?[/caption]
+![](/images/piz8.jpg) Pizza? Who said pizza?[/caption]
 
 ##### 
 
@@ -84,7 +84,7 @@ _ {Vegan, Dairy-free, Egg-free, Nut-free, Homemade, Gluten-free option}_
 
 ### 1\. Prepare the dough.
 
-[caption id="attachment_1141" align="alignnone" width="1920"][![Pizza in the making](http://girlintheraw.com/wp-content/uploads/2014/11/piz3.jpg)](http://girlintheraw.com/wp-content/uploads/2014/11/piz3.jpg) Pizza in the making[/caption]
+![](/images/piz3.jpg) Pizza in the making[/caption]
 
 I purchased a pre-made whole wheat dough for this occasion (it was after I ran the US Half Marathon, so pizza was waiting for me in the fridge like a reward!). I got an organic one at Trader Joe's. This makes the process a whole lot easier (duh!).
 Another quick option is using pizza crusts, tortilla wraps, flatbreads, and alike, and they require only a few minutes of baking as they are basically ready-to-eat.
@@ -99,7 +99,7 @@ While your dough is pre-baking, prep your toppings and sauce!
 
 &nbsp;
 
-###  [![piz2.jpg](http://girlintheraw.com/wp-content/uploads/2014/11/piz2.jpg)](http://girlintheraw.com/wp-content/uploads/2014/11/piz2.jpg)
+###  ![](/images/piz2.jpg)
 
 &nbsp;
 
@@ -111,7 +111,7 @@ After about 5 minutes baking, pull the dough out and let it cool just a bit. The
 
 &nbsp;
 
-[![ piz.jpg](http://girlintheraw.com/wp-content/uploads/2014/11/piz.jpg)](http://girlintheraw.com/wp-content/uploads/2014/11/piz.jpg)
+![](/images/piz.jpg)
 
 I made my own super quick tomato sauce using ketchup. I know, it's a shame to the original pizza. Back in the day in Croatia, my fridge was always stuffed with marinara or tomato sauce, but I eat very little tomatoes now otherwise, so I don't keep any at home. If you can get original marinara or make your own, even better!
 
@@ -127,7 +127,7 @@ I mixed 2 parts of Organic tomato ketchup with 1 part water. Added just a bit of
 
 And the fun continues! Be as creative as you want, it's almost impossible to screw up a pizza!
 
-[![piz5.jpg](http://girlintheraw.com/wp-content/uploads/2014/11/piz5.jpg)](http://girlintheraw.com/wp-content/uploads/2014/11/piz5.jpg)
+![](/images/piz5.jpg)
 
 &nbsp;
 
@@ -135,7 +135,7 @@ I like to start with a full-on layer of zucchini. Zucchini is a great veggie bec
 
 Next, a tightly-packed row of bell peppers. Use green, yellow or red, the more colorful the better. Peppers and tomatoes go great together, and although it may seem strange to people used to traditional cheese or pepperoni pizzas, this veggie is a winner on your pie!
 
-[![ piz6.jpg](http://girlintheraw.com/wp-content/uploads/2014/11/piz6.jpg)](http://girlintheraw.com/wp-content/uploads/2014/11/piz6.jpg)
+![](/images/piz6.jpg)
 
 &nbsp;
 
@@ -143,7 +143,7 @@ Next, a tightly-packed row of bell peppers. Use green, yellow or red, the more c
 
 Now it's time to get fancy. I had some veggie sausages at home and decide to add some vegan meat to my pie, as well as fresh cherry tomatoes. I absolutely adore sun dried tomatoes on a pizza, so if you have some at home pile it up! I was unfortunately out this time.
 
-[![piz7.jpg](http://girlintheraw.com/wp-content/uploads/2014/11/piz7.jpg)](http://girlintheraw.com/wp-content/uploads/2014/11/piz7.jpg)
+![](/images/piz7.jpg)
 
 ### 4\. It's time to get cheezy
 
@@ -153,7 +153,7 @@ I am sure many will agree pizza is not a pizza without cheese, and you do not ha
 
 There are so many options out there, just do your research (by that, I mean try as many as you can). I had two different flavors of cheese in my fridge, mozzarella and cheddar. I like to add cream cheese or even sour cream on my pizza, a tbsp here and there.
 
-[![ piz9.jpg](http://girlintheraw.com/wp-content/uploads/2014/11/piz9.jpg)](http://girlintheraw.com/wp-content/uploads/2014/11/piz9.jpg)
+![](/images/piz9.jpg)
 
 According to what I have been taught, olives go on top of the cheese. Finish off with a pinch of your favorite Italian herbs. A sprinkle of Extra Virgin Olive Oil wouldn't be too shabby either.
 
@@ -163,7 +163,7 @@ Once you are done decorating your pizza to your outmost delight, pop it in the o
 
 ### 5. You pizza is done!
 
-[caption id="attachment_1138" align="alignnone" width="1920"][![Pizza? Who said pizza?](http://girlintheraw.com/wp-content/uploads/2014/11/piz8.jpg)](http://girlintheraw.com/wp-content/uploads/2014/11/piz8.jpg) Pizza? Who said pizza?[/caption]
+![](/images/piz8.jpg) Pizza? Who said pizza?[/caption]
 
 &nbsp;
 

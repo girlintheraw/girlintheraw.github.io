@@ -22,7 +22,7 @@ So you've got yourself a twisted yoga goddess for a girlfriend. Good job! She li
 
 However, it's romantic season gifting time and you are stuck with no ideas!
 
-[![warrior](http://girlintheraw.com/wp-content/uploads/2015/02/warrior.jpg)](http://girlintheraw.com/wp-content/uploads/2015/02/warrior.jpg)
+![](/images/warrior.jpg)
 
 Chocolate is always a good choice - but is it vegan/organic/gluten free/fair trade... ? Ah, you are not even sure what she's into (this week).
 
@@ -36,7 +36,7 @@ Well, fear not, because I've got a great yoga, eco-conscious, vegan and fair tra
 
 ###### **Energy Mist Travel Size Kit**
 
-[![energy_mist_shopify_1024x1024](http://girlintheraw.com/wp-content/uploads/2015/02/energy_mist_shopify_1024x1024.png)](http://girlintheraw.com/wp-content/uploads/2015/02/energy_mist_shopify_1024x1024.png)
+![](/images/energy_mist_shopify_1024x1024.png)
 
 I am obsessed with this stuff! I love aromatherapy, and [Balanced Guru](http://balancedguru.com/products/energy-mist-travel-size-kit ) hit the spot with Chakra focused mists (hint hint: Yoga Girls are really into that energy stuff). The travel sized kit ($25.00) gets you all 7 Chakra mists for a great price, and they are super practical to carry from her yoga bag to her everyday purse to her yoga inspired travels.
 
@@ -46,7 +46,7 @@ From their website: "Our energy mists will help your unblock any energetic block
 
 ###### **With Cranberries &amp; Almonds**
 
-[![chocolate](http://girlintheraw.com/wp-content/uploads/2015/02/chocolate.jpeg)](http://girlintheraw.com/wp-content/uploads/2015/02/chocolate.jpeg)
+![chocolate](http://girlintheraw.com/wp-content/uploads/2015/02/chocolate.jpeg)](http://girlintheraw.com/wp-content/uploads/2015/02/chocolate.jpeg)
 
 Yes, chocolate can be boring, predictable and kind of cheesy on Valentine's Day. But, before you discard the idea completely, hear me out: Chocolate is great! That's my argument. Come on, it's chocolate! If I had a penny for every time I wished I got a simple dark chocolate bar instead of an elaborate, weird, off point gift, well, I'd have enough money to buy myself some chocolate.
 
@@ -60,7 +60,7 @@ Yoga girls love guys with big hearts (and chocolate. We all love chocolate)!
 
 ###### **Yogala Jewelry Shiva Mala**
 
-[![shivamala](http://girlintheraw.com/wp-content/uploads/2015/02/shivamala.jpg)](http://girlintheraw.com/wp-content/uploads/2015/02/shivamala.jpg)
+![](/images/shivamala.jpg)
 
 Yoga girls love to wear jewelry, and if it's boho style, yoga inspired, gypsy goddess themed.. well, all the better! And since I create my own handmade, unique yoga jewelry for my [Yogala Jewelry ](https://www.etsy.com/shop/yogala)Etsy store, how could I not include it in this list! I made my family and friends yoga inspired gifts this past Christmas, and am planing on creating romantic yogi gifts for my Valentine as well.
 
@@ -70,7 +70,7 @@ The collections vary from Yoga Basics to Chakra inspired, and I have a few Godde
 
 ###### **The Elephant Bowl**
 
-[![singing-bowl](http://girlintheraw.com/wp-content/uploads/2015/02/singing-bowl.jpg)](http://girlintheraw.com/wp-content/uploads/2015/02/singing-bowl.jpg)
+![](/images/singing-bowl.jpg)
 
 Tibetan Singing bowls are beautiful instruments that can be enjoyed and played by all, regardless of their musical talent and sense of rhythm. Their sound vibration is believed to have amazing effects on the mind and body, healing, calming and de-stressing. Your yoga girl has probably heard one of these at the end of her _Savasana_ in a yoga class, and if you've heard her mention it more than once, she will probably love this gift.
 
@@ -84,7 +84,7 @@ If you are not ready to take the leap and purchase bowls for home use, you can a
 
 ###### **Goddess Promo Package**
 
-[![daughtofcult](http://girlintheraw.com/wp-content/uploads/2015/02/daughtofcult.png)](http://girlintheraw.com/wp-content/uploads/2015/02/daughtofcult.png)
+![](/images/daughtofcult.png)
 
 Your girl wouldn't be a yoga girl without her funky yoga pants! From cute to funky to absolutely unique, just like your girl, the [Daughters of Culture](http://www.daughtersofculture.com/bottoms/) pants are sure to wow her off her yogi feet!
 

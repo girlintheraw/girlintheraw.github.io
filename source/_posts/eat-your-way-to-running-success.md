@@ -19,17 +19,17 @@ categories:
 date: 2013-08-21 21:38:25
 ---
 
-[caption id="attachment_1177" align="alignnone" width="500"][![Scott at Badwater (135mile ultra through hellish heath).](http://girlintheraw.com/wp-content/uploads/2014/07/ScottJurekLowRes-500.jpg)](http://girlintheraw.com/wp-content/uploads/2014/07/ScottJurekLowRes-500.jpg) Scott at Badwater (135mile ultra through hellish heath).[/caption]
+![](/images/ScottJurekLowRes-500.jpg) Scott at Badwater (135mile ultra through hellish heath).[/caption]
 
 One Hot Humid Summer is almost coming to an end. Unless you are in Florida, of course (because here, the summer never ends)! For a European like me, it is permanent summer here, we just have different degrees of summer - hot, hotter, and hell. (if you have ever been to Belgium, you would know that the coldest day in Florida compares to the most normal &amp; nice summer day there).
 
 But Hot Humid Summer always has certain effects on our running. Well, for one, it's super hot and difficult to go out any time of the day. Second, you can't drink enough coconut water to feel nicely fresh during your training. And third, well let's just revise our dietary habits for a moment. Though I would always agree people tend to slim down and go the fruity route in the summer months, there is still room for improvement on the general scale. So here is an article I wrote for my local Running Forum concerning the end of summer (or any time of the year) nutrition strategies that can assist every runner in fueling properly!
 
-[![run2](http://girlintheraw.com/wp-content/uploads/2013/08/run2.jpg)](http://girlintheraw.com/wp-content/uploads/2013/08/run2.jpg)
+![](/images/run2.jpg)
 
 With school season approaching at the end of August, running moms and dads, babysitters and students, experience their schedules filling up too quickly to even notice the attention to their health and fitness drop. Even if most runners are entering a half or marathon training program to prepare for the (Florida) winter running season, increased back-to-school expenses and all other distractions may leave little room for nutrition talk. Whether it's lack of time, energy or skill, most runners easily find excuses to neglect what's on their plate in favor of convenience. After all, runners are notorious for eating what they please, while the pounds keep on dropping as they steadily increase their mileage yet decrease their PR's (what, you don't?). That is why they refer to their eating habits as fueling, instead of dieting like the general fitness oriented masses. While your average gym goer avoids sugars, carbs and sodium in wide circles, a runner wouldn't survive a 10k race, let along weeks of training without sugary gels and salt pills and drinks. But unless your running schedule compares to Ryan Hall's when prepping for the Olympics, eating 6,000 calories worth of PB&amp;J's and bananas a day may not be the best way to go (and yes, that is a verified number retrieved from an interview with Mr. Hall. That lucky bastard!).
 
-[caption id="attachment_1212" align="alignnone" width="2238"][![Carb Loading with Vegan Pasta and Tempeh](http://girlintheraw.com/wp-content/uploads/2013/08/pastasalad.jpg)](http://girlintheraw.com/wp-content/uploads/2013/08/pastasalad.jpg) Carb Loading with Vegan Pasta[/caption]
+![](/images/pastasalad.jpg) Carb Loading with Vegan Pasta[/caption]
 
 While numerous articles, studies and coaches suggest an optimal 4:1 ration of carbs to protein to keep the legs fresh and moving, most runners (and other average American dieters) don't lack any of those two major food groups on their plates. What most don't care to think about too much is piling up on delicious, healthy and tummy-filling fruits and veggies. Let's examine for a moment why is this so?
 
@@ -50,7 +50,7 @@ Few of my favorite food expeditions: arugula, endive, spinach, salads are quick 
 
 **Smoothies:**
 
-[![smoothie](http://girlintheraw.com/wp-content/uploads/2013/08/smoothie.jpg)](http://girlintheraw.com/wp-content/uploads/2013/08/smoothie.jpg)
+![](/images/smoothie.jpg)
 
 Not the ones from big brand smoothie bars, at least not every day. This is by far one of the easiest foods to prepare st home for anyone who owns a blender or magic bullet. I always keep precut frozen fruits in the freezer (I prefer organic, but any is good to start), and any ripened fruit that is about to go bad gets frozen at my house.
 Recipe suggestions:

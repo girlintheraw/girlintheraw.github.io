@@ -16,19 +16,19 @@ categories:
 date: 2015-04-02 02:13:19
 ---
 
-**[![sing7](http://girlintheraw.com/wp-content/uploads/2015/04/sing7-960x720.jpg)](http://girlintheraw.com/wp-content/uploads/2015/04/sing7.jpg)My Singing Bowls teacher says the bowls hold a special power, and once they enter your life, you will see great expansion and change occur**. My own path and relationship with the bowls definitely proves there is something to his statement. Although I encountered them years ago, and then completely lost sight of them for a long time, they were always somewhere in my mind. I knew one day I will be using them myself in my own practices.
+**![](/images/sing7.jpg)My Singing Bowls teacher says the bowls hold a special power, and once they enter your life, you will see great expansion and change occur**. My own path and relationship with the bowls definitely proves there is something to his statement. Although I encountered them years ago, and then completely lost sight of them for a long time, they were always somewhere in my mind. I knew one day I will be using them myself in my own practices.
 
 I first encountered Tibetan Singing Bowls in 2007, when I was in college, living in Belgium. I studied Eastern Religions and Theology, and would participate in many workshops and special meditation and yoga events at the time. There was a cool German girl, traveling through Europe and playing singing bowls at concerts, and she stopped by our school to give a few workshops and events. My college dorm was actually inside a 16th century gothic castle, and she said the place held a lot of energies from times past, so she came to clean my room with sound vibration. On the evenings, all the college kids, teachers, and people living in the area would get together in our community hall, lay on the floor, and listen to her play for an hour or more.
 
 **I was hooked from the start!** **I loved the bowls and the sound they magically created!** I loved everything she told me about her journey, from meeting a boyfriend who lived in Tibet and brought the bowls home with him, to her traveling lifestyle, to all the special powers the bowls had and the ways she used them. I purchased her CD, and unfortunately lost it to my mom, who as a therapist quickly snagged it to play to her clients during treatment. I can't recall the exact amount of time she spent with us, it felt like weeks, and during each concert I fell deeper and deeper into meditation on the healing sound and wanted to hold on to the feeling for as long as I could.
 
-[caption id="attachment_1013" align="alignnone" width="1000"][![Radhadesh-1](http://girlintheraw.com/wp-content/uploads/2015/04/Radhadesh-1.jpg)](http://girlintheraw.com/wp-content/uploads/2015/04/Radhadesh-1.jpg) The Belgian castle in the winter. Yes, I studied at a bonafide Hogwarts university![/caption]
+![](/images/Radhadesh-1.jpg) The Belgian castle in the winter. Yes, I studied at a bonafide Hogwarts university![/caption]
 
 Well, the German girl left, and years passed till my next encounter with the singing bowls. This time it was the crystal kind, in a yoga studio in Miami, and I again remembered just how awesome this whole process is and how I would love to enjoy more of it. I would scout for bowls from time to time (they are not that easy to come by), but they were always pretty pricy and I didn't take the plunge to actually buy them.
 
 Fast forward to early 2015, I had just moved to the San Francisco Bay, and I discovered a friend of mine from college years, Sandra, was in town with her boyfriend. I haven't seen her in about seven or eight years, and I was very excited to see her, as we shared a lot of memories together. She is from Mexico City, and she was traveling with her American boyfriend, who is a tibetan singing bowls teacher and distributor. **Well, what a surprise!**
 
-[![sing8](http://girlintheraw.com/wp-content/uploads/2015/04/sing8.jpg)](http://girlintheraw.com/wp-content/uploads/2015/04/sing8.jpg)
+![](/images/sing8.jpg)
 
 The thing is, we both met that German girl years ago, and we both fell in love with singing bowls. It was such a surreal experience, seeing her after so many years and learning she now plays the bowls, manages a singing bowls shop in Mexico, and holds workshops and retreats with her boyfriend, a well known teacher and distributor.
 
@@ -45,12 +45,12 @@ It has been scientifically proven through numerous studies that sounds affect ou
 
 The word mantra comes from two Sanskrit roots, _manas_ which means mind, and _tra_ or _trayate_ which means to liberate, or to protect (there are other translations, but this is what I have been taught). Therefore, mantra is a tool to positively affect the mind. We use the simple root mantra, _om_ in almost every yoga class in every studio, to begin and/or end a practice on a high note. I feel the Tibetan singing bowls create a sound vibration very similar to a mantra. You can physically feel the vibration when you play the bowls, and it is very strong, steady and can gradually increase or decrease. I find that the singing bowls simply generate high frequency sounds corresponding to those of the mantras. And just like after hearing or chanting mantras, I feel similar effects of peace, calm, harmony after experiencing singing bowls. I can see that healing with Tibetan singing bowls is becoming more and more popular all over the world.
 
-[caption id="attachment_1019" align="alignnone" width="1126"][![sing3](http://girlintheraw.com/wp-content/uploads/2015/04/sing3.jpg)](http://girlintheraw.com/wp-content/uploads/2015/04/sing3.jpg) Water magnetization with the bowls[/caption]
+![](/images/sing3.jpg) Water magnetization with the bowls[/caption]
 
 *   ###### **A very long and rich tradition**
 Tibetan singing bowls have been in existence for thousands of years, and I for one am a sucker for all things that have a rich history. I do like innovation, do not get me wrong, but when it comes to things pertaining to our physical, mental, emotional and spiritual wellbeing, I am all for tradition and ancient knowledge and practices. I believe many wonderful cultures, and specially Oriental one's, hold keys to a lot of problems we experience today. For me, going back to basics, back to nature is often the answer. The Tibetan singing bowls are hand made from specific metal and with specific tools and skills, and have been used in meditation, healing and more for a very long time. Their sound is pure and raw (no pun intended). When something has such a rich, and maybe a bit mystical history, as we have lost a lot of information about them today, I am always intrigued in it's benefits and want to at least explore it.
 
-[caption id="attachment_1018" align="alignnone" width="1632"][![sing9](http://girlintheraw.com/wp-content/uploads/2015/04/sing9.jpg)](http://girlintheraw.com/wp-content/uploads/2015/04/sing9.jpg) The fire sacrifice and purification ritual at the end of our course[/caption]
+![](/images/sing9.jpg) The fire sacrifice and purification ritual at the end of our course[/caption]
 
 &nbsp;
 
@@ -67,7 +67,7 @@ The bowls can be used to energize water (as one of the above pictures shows), an
 
 From simple mood changer, to full-on healing techniques, the bowls can transform the vibration of the physical and the metaphysical body.
 
-[caption id="attachment_1020" align="alignnone" width="952"][![I](http://girlintheraw.com/wp-content/uploads/2015/04/sing1.jpg)](http://girlintheraw.com/wp-content/uploads/2015/04/sing1.jpg) I'm enjoying a private singing bowls therapy[/caption]
+![](/images/sing1.jpg) I'm enjoying a private singing bowls therapy[/caption]
 
 The energy of the bowls is very powerful and it surely affects everyone who hears it. The more prepared you are to receive the sound healing, the more effect they will have on you. In most therapies or concerts, the teacher will prepare the subject(s) with a few simple breathing, meditation or yoga practices, and then the bowls are usually received laying down in _savasana_ (corpse pose in yoga). One should make sure they are comfortable, warm and relaxed, and it is advised to have one's eyes closed as well.
 
@@ -75,6 +75,6 @@ The energy of the bowls is very powerful and it surely affects everyone who hear
 
 Find someone who is already a singing bowls teacher, therapist or player. Check with your local yoga studios, one of the instructors may know a person or be a singing bowls player themselves! You can check your local meet-ups (on meetup.com) for Singing Bowls, sound healing, meditation etc. You can reach out my teacher [Geoffrey Torkington](http://www.theelephantbowl.com/) and take one of his workshops, or even buy bowls for yourself! And if you are in the San Francisco Bay Area, give one of my events a go!
 
-[![me-singbowl](http://girlintheraw.com/wp-content/uploads/2015/04/me-singbowl.jpg)](http://girlintheraw.com/wp-content/uploads/2015/04/me-singbowl.jpg)
+![](/images/me-singbowl.jpg)
 
 &nbsp;

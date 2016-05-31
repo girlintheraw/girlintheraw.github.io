@@ -23,7 +23,7 @@ I know I'm starting off a bit dramatic, but I just can't help it. After all, I j
 
 Being here, on the white sand of Miami beach, brings back so many memories. I have been reflecting on my life quite a bit in honor of my milestone birthday as it is, and to be back in a place that holds so many memories only intensifies the feeling. I moved here for my boyfriend, who is now my husband.&nbsp;I began my yoga teacher journey here. I started 'seriously' running here. I decided I don't want to live here anymore and then left, realizing I am free to go anywhere I wish.
 
-[![303](http://girlintheraw.com/wp-content/uploads/2016/01/303-960x720.jpg)](http://girlintheraw.com/wp-content/uploads/2016/01/303.jpg)
+![](/images/303.jpg)
 
 I just turned 30, and if you had a chance to talk to my 18 year old self, she would tell you I am amazingly pulled together and successful by the age of 30\. However, the reality is different - not that I'm not at a place where I hoped I would be. My whole life feels completely different than I ever thought it would, honestly. My 18 year old self had plans, ambitions and dreams, some a reality today, and some completely irrelevant. Life ended up being such a wild rollercoaster, I don't think anyone, let along me, could have predicted this reality.
 
@@ -39,7 +39,7 @@ The real question is, what have I learned so far? What has changed?
 
 As a (young) woman, I have always felt I don't have enough. I am not enough. But I am growing more and more tired of feeling not intelligent, not beautiful, not complete. Not thin enough, not tall enough, not appreciated enough. I am growing tired of chasing dreams and ideas that don't matter, living in a moment that doesn't exist, and waiting for that one more thing that will make me happy. As I reflect, I see the subtle and harsh changes that have occurred in my life, my persona, and the years do carry certain lessons, whether we like it or not.&nbsp;
 
-[![301](http://girlintheraw.com/wp-content/uploads/2016/01/301-960x960.jpg)](http://girlintheraw.com/wp-content/uploads/2016/01/301.jpg)
+![](/images/301.jpg)
 
 So without further ado, here are my 30 thoughts on turning 30\. Thirty ideas, messages, realizations, to myself. Thirty things life has taught me, so far.&nbsp;
 
@@ -73,7 +73,7 @@ So without further ado, here are my 30 thoughts on turning 30\. Thirty ideas, me
 28.  <span style="text-decoration: underline;">**Be fulfilled and content**</span>. It is an actual choice, as I am growing to understand, not a reaction to the world being the way I want it to be. As I am growing older, I'm beginning to see how important the practice of contentment really is.&nbsp;
 29.  <span style="text-decoration: underline;">**You are enough**</span>. Stop with all the mental criticism, comparing yourself to others, and many more destructive forms of behavior. You are beautiful/smart/responsible/successful/________(insert favorite adjective). The sooner you let the desire to be more go, you will be happy. It happens every once in a while, and it really works.
 30.  <span style="text-decoration: underline;">**Get to truly know yourself**</span>. You are the only person you have to live with all the time, every day, for the rest of your life. Get to truly know who you are, know your dharma, your life's purpose, and fulfill it. Stop living a fantasy life with a fantasy idea of who you are, it doesn't work. If you know yourself, then you can have good relationships, real partnership, knowledge and education. <span style="text-decoration: underline;">**You can really give the world what you have to give**</span>.&nbsp;
-[![302](http://girlintheraw.com/wp-content/uploads/2016/01/302-960x960.jpg)](http://girlintheraw.com/wp-content/uploads/2016/01/302.jpg)
+![](/images/302.jpg)
 
 When I first started writing, I thought I'd never come up with 30 thoughts, but now they just keep on coming. There are things I wish I'd known ten years ago, that would have made my life easier. But at the same time, it's all about the process, and the fact we learn and progress every day is what gives this life meaning.&nbsp;
 

@@ -17,7 +17,7 @@ I remember when 'the surprise boxes', services of delivering boxes of goodies t
 
 The only subscription I currently hold is with a local farm here in Northern California, they send me a box of fresh picked produce for 33$ and it's always worth it! I can customize it, order more if I need to, and it's all organic and high quality.
 
-[caption id="attachment_1726" align="aligncenter" width="960"][![My shirt says Selfie, btw - perfect for pics of my feet and such](http://girlintheraw.com/wp-content/uploads/2015/09/bulu2-960x1259.jpg)](http://girlintheraw.com/wp-content/uploads/2015/09/bulu2.jpg) My shirt says Selfie, btw - perfect for pics of my feet and such[/caption]
+![](/images/bulu2.jpg) My shirt says Selfie, btw - perfect for pics of my feet and such[/caption]
 
 <span style="text-decoration: underline;">**Bulu box is a great new idea!**</span> They describe themselves as a vitamins and supplement subscription. For only $10, you get a box with about 4-5 products or samples (mine came with one full sized product and a few small sample sized goodies). The box itself is very pretty, orange colored with fun messages pasted all over. The goodies they send are not only food, but beauty and health products as well.
 If you like things delivered to your door, if you like surprises (I sure do), and if you like to try new things without a commitment, Bulu is for you!
@@ -39,7 +39,7 @@ Their website is pretty straightforward, something I definitely appreciate. You 
 I have tried a few services before, and they had **<span style="text-decoration: underline;">Vegan and Gluten Free box</span>** options. As I am Vegan, I received 3 out of 5 products that I couldn't try: Jerky, which was the main full sized product; energy chews and an energy dietary supplement, both with gelatin in it - I use these kinds of products all the time and wish I could have tried them both. I ended up giving the products to my non-veg friend, and she approved. But if I were to commit to let's say a 6 month subscription, as kind as it is to share, I wish I could make sure all products meet my needs.
 That's the only Con I have, otherwise I love the idea and the service!
 
-[![bulu3](http://girlintheraw.com/wp-content/uploads/2015/09/bulu3-960x1280.jpg)](http://girlintheraw.com/wp-content/uploads/2015/09/bulu3.jpg)
+![](/images/bulu3.jpg)
 
 ###### PRODUCT HIGHLIGHTS:
 

@@ -30,7 +30,7 @@ date: 2014-07-29 15:18:56
 
 Maybe you have had a workout routine but feel stuck. Or are a gym newbie, green and crisp. Maybe you just discovered a new sport, or simply need a change. Whatever it may be, _**finding a healthy, active lifestyle is for EVERYONE. At any age, any stage of life, any situation.**_
 
-[caption id="attachment_1175" align="alignnone" width="960"][![Triathletes getting ready to jump in the water. Lake Worth, FL, 2013.](http://girlintheraw.com/wp-content/uploads/2014/07/IMG_0558.jpeg)](http://girlintheraw.com/wp-content/uploads/2014/07/IMG_0558.jpeg) Triathletes getting ready to jump in the water. Lake Worth, FL, 2013.[/caption]
+![Triathletes getting ready to jump in the water. Lake Worth, FL, 2013.](http://girlintheraw.com/wp-content/uploads/2014/07/IMG_0558.jpeg)](http://girlintheraw.com/wp-content/uploads/2014/07/IMG_0558.jpeg) Triathletes getting ready to jump in the water. Lake Worth, FL, 2013.[/caption]
 
 I must admit, the idea for this post came to me while reading another article on the same topic. I'm always on a search for new ideas, challenges and motivational factors to increase my fitness or try something new. But the main factors that prevent most of us in working out, besides **money** and **time** , which were pointed out in the aforementioned article (and absolutely correct), are according to me -
 
@@ -44,7 +44,7 @@ Creativity will get you trying new things, motivation will get you out of the be
 
 I am truly obsessed with running. I love it, I do not by any means find it boring, it gives me the most intense sensation of truly suffering (that's what workouts are for, right?) and to top it all, it's a form of de-stressing and meditation for me.
 
-[caption id="attachment_1176" align="alignnone" width="1200"][![5k Race for Haiti 2012.](http://girlintheraw.com/wp-content/uploads/2014/07/race.jpeg)](http://girlintheraw.com/wp-content/uploads/2014/07/race.jpeg) 5k Race for Haiti 2012.[/caption]
+![5k Race for Haiti 2012.](http://girlintheraw.com/wp-content/uploads/2014/07/race.jpeg)](http://girlintheraw.com/wp-content/uploads/2014/07/race.jpeg) 5k Race for Haiti 2012.[/caption]
 
 I have been through my <span style="text-decoration: underline;">ups and downs</span>. About a year and a half ago, around the time I ran my first half-marathons, I was the fastest ever. And do not get me wrong, I wasn't _that fast. _Just to give you a number's run-down, because we all like to know how fast other people are:
 
@@ -54,7 +54,7 @@ My **half marathon** PR in January '13 was 1:56 and change, just under 9 min/mil
 
 At that time, I was reading Scott Jurek and dreaming of ultras (it will happen one day), getting into triathlons, and fighting a runner's plague known as plantar fasciitis (screw that!). And I remember as clear as day, thinking to myself - you are so close to being a real and good runner. So close, you are almost there! I had podium in age group on most shorter races, just because they weren't that big and females age 25-29 don't seem to run that much here in south Florida - score! I have a basket full of medals, and at one point I raced at least once a month.
 
-[caption id="attachment_1177" align="alignnone" width="500"][![Scott at Badwater (135mile ultra through hellish heath).](http://girlintheraw.com/wp-content/uploads/2014/07/ScottJurekLowRes-500.jpg)](http://girlintheraw.com/wp-content/uploads/2014/07/ScottJurekLowRes-500.jpg) Scott at Badwater (135mile ultra through hellish heath).[/caption]
+![](/images/ScottJurekLowRes-500.jpg) Scott at Badwater (135mile ultra through hellish heath).[/caption]
 
 But things change... oh they do. I finally completed a full **marathon** and **half-iron** triathlon in winter '13/'14 season, but it came at a cost of an injury.
 
@@ -70,7 +70,7 @@ Yes, it would be fabulous if I was marathon ready any given day, now wouldn't it
 
 Loosen those obsessions and goals and go work out already! Anything, literally _anything_ is better than nothing (unless it's your **rest day**). So get creative - that means try new things, meeting new people, and moving your body any chance you get!
 
-[caption id="attachment_1178" align="alignnone" width="960"][![You haven](http://girlintheraw.com/wp-content/uploads/2014/07/down.jpg)](http://girlintheraw.com/wp-content/uploads/2014/07/down.jpg) You haven't experienced Down dog till you try it on the water...[/caption]
+![](/images/down.jpg) You haven't experienced Down dog till you try it on the water...[/caption]
 
 Here are a few examples of workouts I am using to expand my creativity and comfort zone:
 
@@ -87,7 +87,7 @@ Here are a few examples of workouts I am using to expand my creativity and comfo
 
 &nbsp;
 
-[![yoga1](http://girlintheraw.com/wp-content/uploads/2014/07/yoga1.jpg)](http://girlintheraw.com/wp-content/uploads/2014/07/yoga1.jpg)
+![](/images/yoga1.jpg)
 
 Motivation is a very personal feeling, and it can arise from various situations and for various reasons. And just like our other two factors, It <span style="text-decoration: underline;">**Fluctuates**</span>. But there are ways to spark it and maintain it!
 
@@ -99,7 +99,7 @@ On the other hand, you may have watched or read a heartbreaking and inspiring st
 
 You may have finished your first 5k and the sheer adrenaline, ecstasy and excitement of the moment feels like it will last forever and you will become an olympian by this time next year (**hold on to this feeling as long as possible**).
 
-[caption id="attachment_1051" align="alignnone" width="2160"][![Crossing the finish line at my first Sprint Triathlon.](http://girlintheraw.com/wp-content/uploads/2014/12/MG_3623a-copy.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/MG_3623a-copy.jpg) Crossing the finish line at my first Sprint Triathlon.[/caption]
+![](/images/MG_3623a-copy.jpg) Crossing the finish line at my first Sprint Triathlon.[/caption]
 
 Motivation can arise from unfortunate or very fortunate events, emotions, situations... It can be a revenge thing, or a personal promise to yourself. It is up to you to find yours.
 <pre>Motivation is a tricky, very personal thing.</pre>
@@ -148,7 +148,7 @@ I participate in a run club on Tuesday nights, and a triathlon training meet-up 
 *   **Grab a friend** and start your own training run date. I for one wish I had more buddies to do this with, that live close by and are on the same schedule. The day I meet a girl runner who can be my run BFF I will be in ecstasy! But till then, I can at least dream....
 &nbsp;
 
-[caption id="attachment_1180" align="alignnone" width="960"][![Ragnarians are best friends, even if it](http://girlintheraw.com/wp-content/uploads/2014/07/1795759_10102589342189392_1663434598_n.jpg)](http://girlintheraw.com/wp-content/uploads/2014/07/1795759_10102589342189392_1663434598_n.jpg) Ragnarians are best friends, even if it's just for a night or two![/caption]
+![](/images/1795759_10102589342189392_1663434598_n.jpg) Ragnarians are best friends, even if it's just for a night or two![/caption]
 
 **Do not be intimidated** to train with other people! There is a great, HUGE advantage to it. Yes, specially if the group is <span style="text-decoration: underline;">competitive</span> - they will make you run faster. I always run at least 1min/mile faster with a group than on my own. It is a fact. They will push you to go further. They will sign up for races and brag about it, giving you the running envy. You will become crazier around them. All in all, it's for the best.
 

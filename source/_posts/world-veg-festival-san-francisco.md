@@ -13,7 +13,7 @@ date: 2015-10-06 00:24:21
 
 San Francisco proudly presents itself as one of the greatest vegetarian/vegan hubs of the US, if not the world. It's a melting pot of cultures, lifestyles, tastes and hobbies, so naturally us vegetarians/vegans are well represented. I have to say I've become quite spoiled after living in the area. From markets to restaurants, there are so many awesome veg options out there. A good number of all vegan or vegan friendly brands are local to the state of California. Many popular vegan and yoga related establishments headquarters call SF bay home as well - most notably VegNews magazine, and Yoga Journal.
 
-[caption id="attachment_1867" align="aligncenter" width="960"][![vegfest8](http://girlintheraw.com/wp-content/uploads/2015/10/vegfest8-960x568.jpg)](http://girlintheraw.com/wp-content/uploads/2015/10/vegfest8.jpg) rows and rows of fab vegan products[/caption]
+![](/images/vegfest8.jpg) rows and rows of fab vegan products[/caption]
 
 SF bay is naturally home to many festivals and events during the year, including veg friendly ones, and I'm very happy to report from the <span style="text-decoration: underline;">**World Veg Festival**</span> that is happening this weekend, Oct 3rd - 4th 2015\. This same weekend, in the same general location of beautiful Golden Gate Park, a music festival Hardly Strictly is happening as well! SF is keeping busy, that's for sure!
 
@@ -37,7 +37,7 @@ Onto the important stuff! There were a lot of companies at the festival, mostly 
 
 ###### [Miyoko's Creamery](http://miyokoskitchen.com/products-miyoko/) - High Siera Rustic Alpine Cheese
 
-[caption id="attachment_1864" align="aligncenter" width="708"][![Source: miyokoskitchen.com](http://girlintheraw.com/wp-content/uploads/2015/10/Vegan-Cheese-High-Sierra-Rustic-Alpine.jpg)](http://girlintheraw.com/wp-content/uploads/2015/10/Vegan-Cheese-High-Sierra-Rustic-Alpine.jpg) Source: miyokoskitchen.com[/caption]
+![](/images/Vegan-Cheese-High-Sierra-Rustic-Alpine.jpg) Source: miyokoskitchen.com[/caption]
 
 Heaven in a box here! One of the top two products I've tried and bought to take home was cheese made from nuts, cultured just like milk cheese, and with taste, smell and texture a vegan can only dream about. Don't get me wrong, I'm a huge Daiya fan, but I'm also aware that, although great on pizza and toast, that cheese is far from the real deal.
 
@@ -55,7 +55,7 @@ Price $10 for 6.5 oz round (prices of flavors vary online). It's very strong so 
 
 ###### **[JJ's Sweets](https://jjssweets.com/) - Cocomels, Coconut milk caramels with Sea Salt**
 
-[caption id="attachment_1874" align="aligncenter" width="960"][![vegfest2](http://girlintheraw.com/wp-content/uploads/2015/10/vegfest2-960x960.jpg)](http://girlintheraw.com/wp-content/uploads/2015/10/vegfest2.jpg) Zen likes it too![/caption]
+![](/images/vegfest2.jpg) Zen likes it too![/caption]
 
 This was heavenly product number two! I left with it in complete ecstasy. I don't remember the last time I had a caramel, and it was pure delight. They offered a bunch of flavors, original, vanilla, espresso and sea salt, which I ended up purchasing. They had chocolate covered caramels as well. As I write this, I have just finished my last piece caramel (my jaw hurts from chewing), and I kind of wish I had bought more. It's that different kind of buyers remorse I suffer from regularly when it comes to delicious vegan treats.
 
@@ -63,7 +63,7 @@ Price: $5 per bag at the fest. Ate it way too quickly, want more now! I seriousl
 
 ###### **[Sjaaks Organic Chocolates](https://sjaaks.com)**
 
-[caption id="attachment_1879" align="aligncenter" width="300"][![source: sjaaks.com](http://girlintheraw.com/wp-content/uploads/2015/10/single_mints-large.jpg)](http://girlintheraw.com/wp-content/uploads/2015/10/single_mints-large.jpg) source: sjaaks.com[/caption]
+![](/images/single_mints-large.jpg) source: sjaaks.com[/caption]
 
 It wouldn't be a party without chocolate! I found this cute shop with mix and match flavors, and I purchased a pair of each to share with my honey (honest disclosure: I ate most of them). These dark chocolate treats were filled with Mint (as pictured), Peanut Butter, Hazelnut Butter, and Caramel. All fabulous, I have to say PB was probably my least favorite one - and as a fan of peanut butter, that means the other flavors were that damn good!
 
@@ -73,7 +73,7 @@ Price: $0.50 per piece at the fest ($0.75 online). I ate them too quickly as wel
 
 ###### La Vie Yogi Tonic: E3 Live Cocktail
 
-[![vegfest6](http://girlintheraw.com/wp-content/uploads/2015/10/vegfest6-960x960.jpg)](http://girlintheraw.com/wp-content/uploads/2015/10/vegfest6.jpg)
+![](/images/vegfest6.jpg)
 
 **<span style="text-decoration: underline;">Wellness in a bottle</span>** - now that's a motto I like! I've met these guys before, they sell their fab drinks, juices and probiotics at the Fort Mason Farmer's Market in San Francisco. I was happy to find them here again, and after sampling a few delicious drinks I settled on the same one I get most often - E3\. It's a sweet and spicy green drink with apple juice, green algae, lime and ginger (a good punch of it too!). They sell individual drinks, from juices to non-dairy kefirs and probiotics, to almond milk drinks, and multi-day cleanses as well.
 
@@ -83,11 +83,11 @@ Price: varies by drink, E3 is $8.50\. Yes, a bit pricy, as most raw juices are. 
 
 There were a few food stands, including ice cream I regret not trying (see a theme here - I'm a sucker for sweets). Lot of raw food options, and I was very happy to try a raw veggie cone filled with a mildly spicy pate and veggies. I also got a hummus bowl with pita and veggies. For dessert I split a raw vegan tiramisu cake with a nice lady I met!
 
-[![vegfest3](http://girlintheraw.com/wp-content/uploads/2015/10/vegfest3-960x1280.jpg)](http://girlintheraw.com/wp-content/uploads/2015/10/vegfest3.jpg)
+![](/images/vegfest3.jpg)
 
-[![vegfest4](http://girlintheraw.com/wp-content/uploads/2015/10/vegfest4-960x1091.jpg)](http://girlintheraw.com/wp-content/uploads/2015/10/vegfest4.jpg)
+![](/images/vegfest4.jpg)
 
-[![vegfest5](http://girlintheraw.com/wp-content/uploads/2015/10/vegfest5-960x960.jpg)](http://girlintheraw.com/wp-content/uploads/2015/10/vegfest5.jpg)
+![](/images/vegfest5.jpg)
 
 ###### <span style="text-decoration: underline;">**CONCLUSION: **</span>
 

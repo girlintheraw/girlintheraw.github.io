@@ -32,7 +32,7 @@ Here is a run down of a few of my favorite types:
 
 _{vegan, gluten free, soy free, high protein, low fat}_** **
 
-###### [![salad-soup3.jpg](http://girlintheraw.com/wp-content/uploads/2015/05/salad-soup3.jpg)](http://girlintheraw.com/wp-content/uploads/2015/05/salad-soup3.jpg)**Green lentil and veggie soup **
+###### ![](/images/salad-soup3.jpg)**Green lentil and veggie soup **
 
 _{vegan, gluten-free, soy-free, sugar-free, low-fat}_
 
@@ -58,7 +58,7 @@ _{vegan, gluten-free, soy-free, sugar-free, low-fat}_
 
 ###### 
 
-[![](http://girlintheraw.com/wp-content/uploads/2015/05/salad-soup2.jpg)](http://girlintheraw.com/wp-content/uploads/2015/05/salad-soup2.jpg)
+![](/images/salad-soup2.jpg)
 
 ###### **Creamy &amp; Crunchy salad**
 
@@ -79,4 +79,4 @@ The soup and salad combo is my favorite dinner variation. The lentils really tak
 
 NOTE: I served my comfort meal in natural clay plates I bought in Mexico! I have this great desire to bring myself constantly closer to nature, and eating from natural materials (and cooking in them too - I have clay cooking pots!) has definitely made that happen for me. I also love eating with my bamboo spoon, unfortunately I have lost/my dog ate the rest of my Go-To-Ware utensils.
 
-[![salad-soup.JPG](http://girlintheraw.com/wp-content/uploads/2015/05/salad-soup.jpg)](http://girlintheraw.com/wp-content/uploads/2015/05/salad-soup.jpg)
+![](/images/salad-soup.jpg)

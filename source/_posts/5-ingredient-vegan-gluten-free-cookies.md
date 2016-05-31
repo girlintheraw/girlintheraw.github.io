@@ -19,7 +19,7 @@ date: 2015-02-04 00:36:46
 
 Cookies - the name itself suggests a fuzzy, warming, comforting sensation. Like a warm cup of cacao and a cookie on a rainy Saturday afternoon. Or a fresh baked cookie smell filling up the kitchen on a Christmas morning. Or the nickname your first sweetheart assigned you back in school oh so many years ago... Cookies are magical!
 
-[![OLYMPUS DIGITAL CAMERA](http://girlintheraw.com/wp-content/uploads/2015/02/cook6.jpg)](http://girlintheraw.com/wp-content/uploads/2015/02/cook6.jpg)
+![](/images/cook6.jpg)
 
 And they can be such a hassle to make... I consider myself a decent cook (note: see this blog or my IG account), but baking delicious treats is a whole another animal in itself. For every 3-5 baking attempts, maybe one comes out _truly satisfactory_. I definitely haven't mastered the skill yet, and these cookies are just a result of another speculative attempt in the kitchen. I mean, look at them - they look like poop. Yes, I know it and I said it. These are **poop cookies**. It's ok though, because they are tasty and they are definitely healthy! Made with only natural, delicious ingredients, after all, how bad can they come out to be?
 
@@ -43,15 +43,15 @@ The best part about these cookies is that the ingredients are ready to eat as th
 *   Baking sheet and baking paper.
 *   Spoon or spatula.
 *   Oven or dehydrator.
-[![cook2.jpg](http://girlintheraw.com/wp-content/uploads/2015/02/cook2.jpg)](http://girlintheraw.com/wp-content/uploads/2015/02/cook2.jpg)
+![](/images/cook2.jpg)
 
 Look at this creamy goodness - all the ingredients mashed up into a delicious, lick-your-fingers cookie dough paste. The process is super easy - dump all ingredients into a blender or food processor, form cookies, bake at 350 for about 15 minutes (or dehydrate for 10-12hours at 108) and you are done!
 
-[![cook3.jpg](http://girlintheraw.com/wp-content/uploads/2015/02/cook3.jpg)](http://girlintheraw.com/wp-content/uploads/2015/02/cook3.jpg)
+![](/images/cook3.jpg)
 
 The mass is very liquid and creamy, as it is flourless and the cashew meal doesn't absorb as much liquid as some other GF flours, however, the cookies come out nice, soft and chewy afterwards. I will warn you that even the paper sheet wasn't enough to prevent sticking (I definitely advise you not to bake without a sheet because it must be a hassle to remove cookies without crumbling them).
 
-[![OLYMPUS DIGITAL CAMERA](http://girlintheraw.com/wp-content/uploads/2015/02/cook8.jpg)](http://girlintheraw.com/wp-content/uploads/2015/02/cook8.jpg)
+![](/images/cook8.jpg)
 
 ###### 5 Ingredient Vegan &amp; Gluten Free Cookies:
 
@@ -72,7 +72,7 @@ _{vegan, gluten free, soy free, dairy free, sugar free, processed ingredient fre
 
 3\. Bake for 15 minutes or until chocolate brown and dry on the outside, but still soft - you do not want them to get too dry! Alternatively, place in dehydrator on 108 and dry for 8 hours. Check if ready, turn if needed, and dry for extra 2-4 hours if necessary.
 
-[![cook7.jpg](http://girlintheraw.com/wp-content/uploads/2015/02/cook7.jpg)](http://girlintheraw.com/wp-content/uploads/2015/02/cook7.jpg)
+![](/images/cook7.jpg)
 
 That is all there is to it!
 

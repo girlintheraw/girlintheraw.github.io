@@ -21,11 +21,11 @@ categories:
 date: 2014-06-25 02:07:28
 ---
 
-[caption id="attachment_1182" align="alignnone" width="1885"][![Blue Ridge Mountains, North Carolina](http://girlintheraw.com/wp-content/uploads/2014/06/IMG_4299.jpeg)](http://girlintheraw.com/wp-content/uploads/2014/06/IMG_4299.jpeg) Blue Ridge Mountains, North Carolina[/caption]
+![Blue Ridge Mountains, North Carolina](http://girlintheraw.com/wp-content/uploads/2014/06/IMG_4299.jpeg)](http://girlintheraw.com/wp-content/uploads/2014/06/IMG_4299.jpeg) Blue Ridge Mountains, North Carolina[/caption]
 
 I'm laying in bed, satisfied yet sick as a dog (with my doggie laying at my feet, empathizing with my state). I have just returned from one of the most amazing, powerful, truly changing trips that left me drained of energy. There is this amazing thing that happens with my body, a defense mechanism of sort that I've perfected since I was an elementary school student -  that kicks into 'sick mode' as soon as I am overwhelmed with life/study/work/relationships. Adding to that: deeply spiritual, cleaning, meditative and bonding experiences that happen on a mountain kirtan (spiritual music) retreat, and you have one very sick, I-need-someone-to-care-for-me girl.
 
-[caption id="attachment_1183" align="alignnone" width="1651"][![Mommy, I don](http://girlintheraw.com/wp-content/uploads/2014/06/zens.jpeg)](http://girlintheraw.com/wp-content/uploads/2014/06/zens.jpeg) Mommy, I don't think I'm feeling well...[/caption]
+![Mommy, I don](http://girlintheraw.com/wp-content/uploads/2014/06/zens.jpeg)](http://girlintheraw.com/wp-content/uploads/2014/06/zens.jpeg) Mommy, I don't think I'm feeling well...[/caption]
 
 But do not worry, this story has a happy ending - I do get better eventually. The days spent in agonizing sickness feel like years, sure, but they are also moments dedicated to resting and pondering about life. One of those pondering moments led me to this very article! Not only did I desire to share my wonderful, albeit very detoxifying, experience with the world, I came to a great realization while laying in bed, pitying myself. I realized I am, undoubtedly, an _expert in sickness_! That defense mechanism never fails me. And I have some tricks up my sleeve on how to get better, mentally and physically!
 
@@ -63,7 +63,7 @@ And finally, add ginger powder to everything! Period. Even when healthy.
 
 An obvious one, but still worth mentioning. As soon as I feel the cold front sneaking on me, I start to amp up my lemon intake. Easiest is in teas and water, but can add to foods (rice and salad taste so much better with a lemon squeeze). Grapefruit is my favorite citrus fruit and I somehow do not eat enough of it, but it's so good when you're sick. According to ayurveda, grapefruit is obviously sour but also of bitter taste - which combats kapha or mucus in the body. Oranges, mandarines, eat all you can when sick!
 
-[caption id="attachment_1184" align="alignnone" width="1741"][![Delicious pink grapefruit](http://girlintheraw.com/wp-content/uploads/2014/06/citrus.jpg)](http://girlintheraw.com/wp-content/uploads/2014/06/citrus.jpg) Delicious pink grapefruit[/caption]
+![](/images/citrus.jpg) Delicious pink grapefruit[/caption]
 
 #### <span style="color: #00ccff;">3\. Serious hydration</span>
 
@@ -75,7 +75,7 @@ Another one you've probably heard of, but it cannot be stressed enough. I, for o
 
 Yes, raw foods are awesome for your body, but they do take more energy to digest for certain body types (regardless of the enzyme situation in your stomach). Therefore, rule of thumb is easily digestible foods when you defense system is busy, well, defending! Raw or not, make sure it doesn't bloat you or create gas, thats a sure sign of undigested foodstuffs. Most fresh fruits (avoid bananas, because of kapha or mucus), light salads mixed with lemon and EVOO dressing, without too many ingredients. Mono meals are the way to go to give your body a rest. Proteins and fats are hardest on the digestive tract when you're immune system is down.
 
-[caption id="attachment_1185" align="alignnone" width="1920"][![Pineapple, lime, kale and carrot juice in the perfect color of poop - just like I](http://girlintheraw.com/wp-content/uploads/2014/06/juice2.jpg)](http://girlintheraw.com/wp-content/uploads/2014/06/juice2.jpg) Pineapple, lime, kale and carrot juice in the perfect color of poop - just like I'm feeling right now![/caption]
+![](/images/juice2.jpg) Pineapple, lime, kale and carrot juice in the perfect color of poop - just like I'm feeling right now![/caption]
 
 #### <span style="color: #ffcc00;">5\. Soup!</span>
 
@@ -97,7 +97,7 @@ When very sick, my formula is 2 caps every two hours (yes, often!) or at least 4
 
 Oh yes, and there's an added benefit - you will run the loo like anything if you drink it regularly! It purifies your whole body, starting with the intestines! Just fyi.
 
-[![NutriBiotic-GSE-Grapefruit-Seed-Extract-Liquid-Concentrate-728177010010](http://girlintheraw.com/wp-content/uploads/2014/06/NutriBiotic-GSE-Grapefruit-Seed-Extract-Liquid-Concentrate-728177010010.jpg)](http://girlintheraw.com/wp-content/uploads/2014/06/NutriBiotic-GSE-Grapefruit-Seed-Extract-Liquid-Concentrate-728177010010.jpg)
+![](/images/NutriBiotic-GSE-Grapefruit-Seed-Extract-Liquid-Concentrate-728177010010.jpg)
 
 #### <span style="color: #0000ff;">7\. Salt water nasal spray</span>
 
@@ -125,7 +125,7 @@ Inversions and fish pose (matsyasana) : amazing for relieving congestion and hea
 
 Pranayama: a must for raising energy levels and prana (life force) in the body.
 
-[caption id="attachment_1187" align="alignnone" width="1024"][![Yoga in the mountains of North Carolina](http://girlintheraw.com/wp-content/uploads/2014/06/yoga.jpg)](http://girlintheraw.com/wp-content/uploads/2014/06/yoga.jpg) Yoga in the mountains of North Carolina[/caption]
+![](/images/yoga.jpg) Yoga in the mountains of North Carolina[/caption]
 
 Hope these **tips** help you next time you're forced to take a break! No matter what you take, make sure you get rid of all sources of stress and subconscious pressure and really, truly take the time for yourself and **heal consciously.**
 

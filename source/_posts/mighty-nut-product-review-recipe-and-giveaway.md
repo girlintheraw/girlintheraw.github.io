@@ -29,7 +29,7 @@ There are two important points I want you to take from this:
 
 2\. There are flavors to choose from! I love the vanilla flavor I got, it's very mildly sweet, but here is a noticeable difference from the original flavor, which is more nutty and salty (they have added salts, but the sodium content is still decent (75-115mg, all around 5% of recommended daily value, based on a 2000 kcal diet). I would like to try the flax and chia next, because of the added superfoods benefits.
 
-[![powderedpb.jpg](http://girlintheraw.com/wp-content/uploads/2015/10/powderedpb-960x960.jpg)](http://girlintheraw.com/wp-content/uploads/2015/10/powderedpb.jpg)
+![](/images/powderedpb.jpg)
 
 If you've never tried this type of a product, you might be wondering what to do with it! Here are a few suggestions and tips:
 
@@ -47,7 +47,7 @@ My creativity is running out by this point! If you think of anything else, do le
 
 _{vegan, gluten free, dairy free, paleo-friendly, high carb, low fat}_
 
-[![vanillapb](http://girlintheraw.com/wp-content/uploads/2015/10/vanillapb-960x960.jpg)](http://girlintheraw.com/wp-content/uploads/2015/10/vanillapb.jpg)
+![](/images/vanillapb.jpg)
 
 **INGREDIENTS**:
 
@@ -71,7 +71,7 @@ _{vegan, gluten free, dairy free, paleo-friendly, high carb, low fat}_
 
 _{vegan, gluten free, dairy free, paleo-friendly, high carb, low fat}_
 
-[![originalpb](http://girlintheraw.com/wp-content/uploads/2015/10/originalpb-960x960.jpg)](http://girlintheraw.com/wp-content/uploads/2015/10/originalpb.jpg)
+![](/images/originalpb.jpg)
 
 **INGREDIENTS**:
 
@@ -88,7 +88,7 @@ _{vegan, gluten free, dairy free, paleo-friendly, high carb, low fat}_
 **INSTRUCTIONS**:
 
 1.  Same as the previous recipe, blend your ingredients and enjoy! You might need to scrape the sides a few times if it's really thick, or add a few table spoons of almond milk to thin it out. Toppings are my suggestions, they are always optional!
-[![vanillapb2](http://girlintheraw.com/wp-content/uploads/2015/10/vanillapb2-960x960.jpg)](http://girlintheraw.com/wp-content/uploads/2015/10/vanillapb2.jpg)
+![](/images/vanillapb2.jpg)
 
 The first smoothie bowl was much sweeter than the second one, because the vanilla Mighty nut is a tad sweeter, but also because I used a different yogurt as a base! I like to pair sweet smoothie/yogurt bowls with less sweet granola, and vice versa.
 

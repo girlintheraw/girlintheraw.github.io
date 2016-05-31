@@ -24,7 +24,7 @@ categories:
 date: 2014-11-10 22:00:57
 ---
 
-[![bridge](http://girlintheraw.com/wp-content/uploads/2014/11/bridge.jpg)](http://girlintheraw.com/wp-content/uploads/2014/11/bridge.jpg)
+![](/images/bridge.jpg)
 
 Past Sunday I ran my** #7 Half marathon**! (11/4/2014)
 
@@ -34,7 +34,7 @@ The best memory I walked, or limped, away with was the beautiful scenery and ve
 
 ##### _Enjoying the race makes time pass faster and the running feels so much easier!_
 
-[caption id="attachment_1150" align="alignnone" width="640"][![photo 4](http://girlintheraw.com/wp-content/uploads/2014/11/photo-41.jpg)](http://girlintheraw.com/wp-content/uploads/2014/11/photo-41.jpg) Making our way to the Golden Gate Bridge[/caption]
+![](/images/photo-41.jpg) Making our way to the Golden Gate Bridge[/caption]
 
 Shocker, right?
 
@@ -42,7 +42,7 @@ Some races, I start suffering at the mile 1 marker, and just continue to puff an
 
 &nbsp;
 
-[caption id="attachment_1151" align="alignnone" width="640"][![Taking pictures while running is quite an art!](http://girlintheraw.com/wp-content/uploads/2014/11/photo-2.jpg)](http://girlintheraw.com/wp-content/uploads/2014/11/photo-2.jpg) Taking pictures while running is quite an art![/caption]
+![](/images/photo-2.jpg) Taking pictures while running is quite an art![/caption]
 
 &nbsp;
 
@@ -52,7 +52,7 @@ Some races, I start suffering at the mile 1 marker, and just continue to puff an
 
 I sometimes imagine what would happen if I was a famous marathoner, getting interviewed for Runner's World magazine, sharing my tips and tricks. (shut up, all runner girls imagine stuff like that!) So the interviewer would ask me: _It's five minutes before the start of the race! What are you doing? _My response: _I'm in the port-a-potty_. Question: _Ok, the gun is off and the race is starting!! Where are  you, on the front of the pack? The middle? Taking selfies?_ My response: _Still in the port-a-potty._ **Every. Singe. Time.** No matter if it's a 5k or a marathon, down the street from my house or hours of driving away. My nerves (and drinking) get the best of me and I am always in that super long port-a-potty line at the start.
 
-[caption id="attachment_1152" align="alignnone" width="1280"][![I did have time for a start line selfie nonetheless](http://girlintheraw.com/wp-content/uploads/2014/11/1.jpg)](http://girlintheraw.com/wp-content/uploads/2014/11/1.jpg) I did have time for a start line selfie nonetheless[/caption]
+![](/images/1.jpg) I did have time for a start line selfie nonetheless[/caption]
 
 I think it is safe to make sure your bladder is empty, I just hate seeing nervous runners in lines during the race! Specially the potties on mile 1, which were pretty crowded this time around if I may add. As long as I'm not loosing precious minutes of my already weakened race time, I will wait in line patiently as long as it takes! And that is why I crossed the start line over 5minutes after the gun went off!
 
@@ -62,11 +62,11 @@ There are benefits to starting the race a bit late. I avoided the start line cro
 
 # The Race
 
-[![us half](http://girlintheraw.com/wp-content/uploads/2014/11/us-half.jpg)](http://girlintheraw.com/wp-content/uploads/2014/11/us-half.jpg)
+![](/images/us-half.jpg)
 
 US Half Marathon starts at the Bay and you enjoy water views throughout - very few race features can beat that if you ask me!
 
-[![br](http://girlintheraw.com/wp-content/uploads/2014/11/br.jpg)](http://girlintheraw.com/wp-content/uploads/2014/11/br.jpg)
+![](/images/br.jpg)
 
 I was just excited to be running again! This was my first longer distance race in about 6 months, and the running rush was stronger than the nerves.
 
@@ -86,13 +86,13 @@ I did not know what to expect from the terrain. I knew there was a decent climb,
 
 **MILE 5:** 10:19 Still on that climb. Yes, I will blame it on that. I honestly can't remember, but the trip up the bridge was pretty long and up-hill, down-hill.
 
-[![photo 5](http://girlintheraw.com/wp-content/uploads/2014/11/photo-51.jpg)](http://girlintheraw.com/wp-content/uploads/2014/11/photo-51.jpg)
+![](/images/photo-51.jpg)
 
 **MILE 6**: 9:38\. Back to what is a decent pace for me in a half (hint: if it starts with a 9, it's all good). I am almost half way, yay!
 
 **MILE 7**: 9:17\. We ran the bridge! It was fun and beautiful, although navigating people on the narrower side walk wasn't easy at times. They did not close the bridge for the race (of course, I guess), so we ran on the side and got a few encouraging beeps from the passing cars. Funny story: at one point we hit a pole and were trying to avoid it, and I of course ran into another runner. I tripped on her feet and was convinced I was going to FALL! We both grabbed onto each other and managed to stay standing - I am laughing as I am writing this. I am just super clumsy.
 
-[caption id="attachment_1157" align="alignnone" width="768"][![IMG_6596](http://girlintheraw.com/wp-content/uploads/2014/11/IMG_6596.jpg)](http://girlintheraw.com/wp-content/uploads/2014/11/IMG_6596.jpg) The view of the Bridge on the other side.[/caption]
+![](/images/IMG_6596.jpg) The view of the Bridge on the other side.[/caption]
 
 **MILE 8**: 10:23 Coming to Marin county was beautiful, with a close-up view of the mountains ahead. We ran a super steep downhill, under the bridge, and an equally steep uphill on the other side.
 
@@ -100,7 +100,7 @@ I did not know what to expect from the terrain. I knew there was a decent climb,
 
 **MILE 10**: 8:57 Not bad Matea! I was surprised to notice the bridge isn't flat as it seems, there was a climb and a descend after half way - hence the pace. Since when are bridges uphills? On yeah, since always.
 
-[caption id="attachment_1158" align="alignnone" width="635"][![Loving every minute of this beautiful race](http://girlintheraw.com/wp-content/uploads/2014/11/run3.jpg)](http://girlintheraw.com/wp-content/uploads/2014/11/run3.jpg) Loving every minute of this beautiful race[/caption]
+![](/images/run3.jpg) Loving every minute of this beautiful race[/caption]
 
 **MILE 11**: 9:31 YAY, we ran the Bridge. This is the point where the race started feeling a bit tiresome.
 
@@ -112,13 +112,13 @@ I did not know what to expect from the terrain. I knew there was a decent climb,
 
 I finished the race at just **2:08** according to net time, 2:07:54 according to my Garmin. That is about 12 minutes slower than my PR of 1:56\. Not my slowest either, so I'll take it!
 
-[caption id="attachment_1159" align="alignnone" width="635"][![Finish!!! Hilarious face finish line photo: check!](http://girlintheraw.com/wp-content/uploads/2014/11/finish.jpg)](http://girlintheraw.com/wp-content/uploads/2014/11/finish.jpg) Finish!!! Hilarious face finish line photo: check![/caption]
+![](/images/finish.jpg) Finish!!! Hilarious face finish line photo: check![/caption]
 
-[caption id="attachment_1160" align="alignnone" width="640"][![Bling bling](http://girlintheraw.com/wp-content/uploads/2014/11/medal.jpg)](http://girlintheraw.com/wp-content/uploads/2014/11/medal.jpg) Bling bling[/caption]
+![](/images/medal.jpg) Bling bling[/caption]
 
 The hardware for this race is very nice and in my taste - the medal spins!!! Overall, all the **race swag** is pretty and practical! **LOVE **my tech, long sleeve black shirt with red accents, I have seriously worn it a few times in the last few days. Love the red reusable bottle, and the medal. We got a few nutrition samples at the race, that were ok but not spectacular (feed me and I will be happy!).
 
-[caption id="attachment_1162" align="alignnone" width="960"][![The &quot;after&quot; shot](http://girlintheraw.com/wp-content/uploads/2014/11/after1.jpg)](http://girlintheraw.com/wp-content/uploads/2014/11/after1.jpg) The "after" shot[/caption]
+![](/images/after1.jpg) The "after" shot[/caption]
 
 # The Gear
 
@@ -161,13 +161,13 @@ Garmin Forerunner 910x - it's a triathlon watch that works great for running onl
 
 Music! I brought my iPhone to take pics and I definitely listen to music, specially on longer races. I am not sure if it was officially allowed on this race (some forbid it), but I saw plenty of people jamming to their music. I always make sure I can hear my surroundings, by pulling one earplug out if needed. This race didn't coincide with any traffic and it was a safe course.
 
-[![br](http://girlintheraw.com/wp-content/uploads/2014/11/br1.jpg)](http://girlintheraw.com/wp-content/uploads/2014/11/br1.jpg)
+![](/images/br1.jpg)
 
 # 
 
 # Nutrition
 
-#  [![brid](http://girlintheraw.com/wp-content/uploads/2014/11/brid.jpg)](http://girlintheraw.com/wp-content/uploads/2014/11/brid.jpg)
+#  ![](/images/brid.jpg)
 
 To the most important topic: what and when to **EAT** !
 
@@ -193,6 +193,6 @@ We got a beautiful reusable bottle at the end of the race, and there were big ta
 
 <span style="line-height: 1.5;"> </span>
 
-[caption id="attachment_1165" align="alignnone" width="533"][![FINISH LINE!!!](http://girlintheraw.com/wp-content/uploads/2014/11/finish2.jpg)](http://girlintheraw.com/wp-content/uploads/2014/11/finish2.jpg) FINISH LINE!!![/caption]
+![](/images/finish2.jpg) FINISH LINE!!![/caption]
 
 I hope you find my recap useful and if you are intrigued by this course, I highly recommend this race for next year! It was fun, challenging enough yet beautiful and the scenery did all the work distracting me from any pains and suffering that running a half marathon brings. Now onto new running adventures!

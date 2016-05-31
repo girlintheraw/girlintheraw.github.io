@@ -56,9 +56,9 @@ The food is top notch, you can tell the cooks are beyond professional, and they 
 
 Acyuta had an Indian inspired dish, a salty pancake filled with veggies, covered in delicious variety of sauces. It wasn't as spicy as traditional Indian food, which means I was able to enjoy it! Even if you are not a fan of Indian, or spicy in general, you could give this preparation a try and probably come out satisfied.&nbsp;The RAW LASAGNA&nbsp;was fantastic! I know how to make raw cashew cheese and raw pesto, but the live herbed almond cheese and kale &amp; pecan pesto were spectacular and so much better than my homemade versions. With arugula greens on top, it was a delicious and very satisfying meal. We shared a&nbsp;PINE NUT CREME BRULEE for dessert. I haven't had Creme Brulee in quite a while, and although it was tasty, it wasn't fully satisfactory. It seemed more like a pudding than a Creme Brulee, and it was very small for 9$, even for a fancy restaurant like Plant. Our friends had the cannoli, which looked fantastic and I'm definitely getting that next time!
 
-[caption id="attachment_2184" align="aligncenter" width="960"][![Raw Lasagna from Plant](http://girlintheraw.com/wp-content/uploads/2016/01/plant1-960x960.jpg)](http://girlintheraw.com/wp-content/uploads/2016/01/plant1.jpg) Raw Lasagna from Plant[/caption]
+![](/images/plant1.jpg) Raw Lasagna from Plant[/caption]
 
-[caption id="attachment_2198" align="aligncenter" width="960"][![SEITAN CHILE CON QUESO from Plant](http://girlintheraw.com/wp-content/uploads/2016/01/bean3-960x1055.jpg)](http://girlintheraw.com/wp-content/uploads/2016/01/bean3.jpg) SEITAN CHILE CON QUESO from Plant[/caption]
+![](/images/bean3.jpg) SEITAN CHILE CON QUESO from Plant[/caption]
 
 ## [2\. LAUGHING SEED](http://laughingseed.jackofthewood.com/menu/)
 
@@ -72,9 +72,9 @@ It is important to note this is a vegetarian restaurant, meaning some dishes, al
 
 This is a sit-down restaurant with a relaxed atmosphere. There is a very pretty colorful wall painted with what I can describe as a scene from a rainforest, that adds to the fun ambiance.&nbsp;
 
-[caption id="attachment_2183" align="aligncenter" width="640"][![Raw stuffed Zucchini noodles from Laughing Seed](http://girlintheraw.com/wp-content/uploads/2016/01/laughinseed.jpg)](http://girlintheraw.com/wp-content/uploads/2016/01/laughinseed.jpg) Raw stuffed Zucchini noodles from Laughing Seed[/caption]
+![](/images/laughinseed.jpg) Raw stuffed Zucchini noodles from Laughing Seed[/caption]
 
-[caption id="attachment_2189" align="aligncenter" width="960"][![Raw Dragon Bowl from Laughing Seed](http://girlintheraw.com/wp-content/uploads/2016/01/laughingseed1-960x960.jpg)](http://girlintheraw.com/wp-content/uploads/2016/01/laughingseed1.jpg) Raw Dragon Bowl from Laughing Seed[/caption]
+![](/images/laughingseed1.jpg) Raw Dragon Bowl from Laughing Seed[/caption]
 
 ## 3[. Nectar](http://www.nectaravl.com/)
 
@@ -84,9 +84,9 @@ The location is still relatively central to Asheville, and the restaurant has a 
 
 My favorite thing on the menu are raw juices, as this is a high-raw restaurant. They also carry smoothies, shots, a variety of almond milks and other delicious drinks. If you stop for breakfast, you can enjoy an assortment of raw granolas, chia puddings and other healthy treats. They carry a modest, but definitely not extensive, assortment of snacks, entrees, pizzas (all raw!), superfood bowls, salads, sandwiches and soups. If raw and high raw food isn't your thing, you will definitely have something to choose from in their southern comfort section! Enjoy a sweet treat, either a raw dish from the fridge, or a baked goodie, a lot of which are gluten free as well.
 
-[caption id="attachment_2186" align="aligncenter" width="960"][![Raw Lemon Tart from Nectar](http://girlintheraw.com/wp-content/uploads/2016/01/nectar2-960x960.jpg)](http://girlintheraw.com/wp-content/uploads/2016/01/nectar2.jpg) Raw Lemon Tart from Nectar[/caption]
+![](/images/nectar2.jpg) Raw Lemon Tart from Nectar[/caption]
 
-[caption id="attachment_2185" align="aligncenter" width="960"][![Raw Pesto Pizza from Nectar](http://girlintheraw.com/wp-content/uploads/2016/01/nectar3-960x960.jpg)](http://girlintheraw.com/wp-content/uploads/2016/01/nectar3.jpg) Raw Pesto Pizza from Nectar[/caption]
+![](/images/nectar3.jpg) Raw Pesto Pizza from Nectar[/caption]
 
 ## [4.&nbsp;ROSETTA'S KITCHEN AND BUCHI BAR](http://rosettaskitchen.com/kitchen-menu)
 
@@ -100,9 +100,9 @@ I recommend the Buddha bowl, filled with greens, long grain rice, organic smokey
 
 The vibe is relaxed, perfect for bigger groups and catch-up with friends. The Buchi bar is open till very late, about 1 or 2am, so it's a popular spot on weekend nights.&nbsp;
 
-[caption id="attachment_2190" align="aligncenter" width="960"][![Buddha Bowl from Rosetta](http://girlintheraw.com/wp-content/uploads/2016/01/rosettas1-960x720.jpg)](http://girlintheraw.com/wp-content/uploads/2016/01/rosettas1.jpg) Buddha Bowl from Rosetta's[/caption]
+![](/images/rosettas1.jpg) Buddha Bowl from Rosetta's[/caption]
 
-[caption id="attachment_2192" align="aligncenter" width="960"][![Curry from Rosetta](http://girlintheraw.com/wp-content/uploads/2016/01/rosettas3-960x720.jpg)](http://girlintheraw.com/wp-content/uploads/2016/01/rosettas3.jpg) Curry from Rosetta's[/caption]
+![](/images/rosettas3.jpg) Curry from Rosetta's[/caption]
 
 ## [5.&nbsp;BEAN VEGAN CUISINE&nbsp;](http://www.eatatbean.com/)
 
@@ -114,9 +114,9 @@ Desserts are pretty hearty, though a tad small in my taste - as much as I enjoy 
 
 Kitty Kat Cake (<span class="fdm-item-price">$5.00), made with&nbsp;</span>Layers of Wafers, Caramel, and Chocolate with Chocolate and Peanut Butter Mousse, is their most popular dessert (I think there is no explanation necessary), and it is divine!
 
-[caption id="attachment_2199" align="aligncenter" width="960"][![Bean salad from Bean](http://girlintheraw.com/wp-content/uploads/2016/01/bean2-960x960.jpg)](http://girlintheraw.com/wp-content/uploads/2016/01/bean2.jpg) Bean salad from Bean[/caption]
+![](/images/bean2.jpg) Bean salad from Bean[/caption]
 
-[caption id="attachment_2200" align="aligncenter" width="960"][![Mash and gravy, biscuit and ](http://girlintheraw.com/wp-content/uploads/2016/01/bean1-960x960.jpg)](http://girlintheraw.com/wp-content/uploads/2016/01/bean1.jpg) Mash and gravy, biscuit and 'meatloaf' from Bean[/caption]
+![](/images/bean1.jpg) Mash and gravy, biscuit and 'meatloaf' from Bean[/caption]
 
 ## Coffee and Dessert
 
@@ -138,7 +138,7 @@ Donuts are as pretty and funky as they are tasty. They are so creative with thei
 
 Drink menu boosts coffee, local sodas and kombucha. The place is relatively small, centrally located, perfect to grab-and-go, or sit down and catch up with loved ones. I see people bringing their computers and catching up on work as well, and it's definitely a more delicious option than Starbucks.&nbsp;
 
-[caption id="attachment_2193" align="aligncenter" width="960"][![Donuts and Apple Fritter from Vortex](http://girlintheraw.com/wp-content/uploads/2016/01/vortex-960x1095.jpg)](http://girlintheraw.com/wp-content/uploads/2016/01/vortex.jpg) Donuts and Apple Fritter from Vortex[/caption]
+![](/images/vortex.jpg) Donuts and Apple Fritter from Vortex[/caption]
 
 ## Vegan bar: [TBOB (THE BLOCK OFF BILTMORE)](http://theblockoffbiltmore.com/)
 
@@ -148,9 +148,9 @@ TBOB opened up in late 2015, just around the time I moved to Asheville, and it s
 
 The Bar offers an array of drinks, of course some alcoholic, but plenty of non-alcoholic as well. Sweet holiday drinks, such as a vegnog (vegan eggnog), chocolate-mint, and similar are simply delicious! The bar carries local sodas of various flavors, vegan bar snacks, and even mini-meals like soup and salad. TBOB hosts potlucks often - our [Christmas party ](http://girlintheraw.com/how-to-survive-the-holidays-as-a-vegan/)was simply to die for!
 
-[caption id="attachment_2196" align="aligncenter" width="960"][![Enjoying a vegan chocolate mint drink on New Year](http://girlintheraw.com/wp-content/uploads/2016/01/tbob2-960x1417.jpg)](http://girlintheraw.com/wp-content/uploads/2016/01/tbob2.jpg) Enjoying a vegan chocolate mint drink on New Year's Eve[/caption]
+![](/images/tbob2.jpg) Enjoying a vegan chocolate mint drink on New Year's Eve[/caption]
 
-[caption id="attachment_2197" align="aligncenter" width="960"][![House made sodas ](http://girlintheraw.com/wp-content/uploads/2016/01/tbob1-960x960.jpg)](http://girlintheraw.com/wp-content/uploads/2016/01/tbob1.jpg) House made sodas[/caption]
+![](/images/tbob1.jpg) House made sodas[/caption]
 
 ## Bonus:
 

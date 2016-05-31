@@ -15,7 +15,7 @@ categories:
 date: 2015-09-22 20:06:03
 ---
 
-[![fsmooth3.jpg](http://girlintheraw.com/wp-content/uploads/2015/09/fsmooth3-960x963.jpg)](http://girlintheraw.com/wp-content/uploads/2015/09/fsmooth3.jpg)
+![](/images/fsmooth3.jpg)
 
 I'm enjoying delicious seasonal fruits as much as possible. Before moving to Northern California, I lived in Florida, a place where seasons do not exist. We did enjoy an array of tropical fruits, such as mango, pineapple, avocado, even dragon fruit from time to time, but the change of seasons didn't bring about a great change at my local farmer's market. As I grew up in Croatia, my body is used to and enjoy change in seasonal produce more than I was actually aware of.
 
@@ -32,7 +32,7 @@ THE GOOD NEWS is even if the season of these fab fruits is over, most stores (sp
 *   _{vegan, gluten-free, high raw, soy free, added sugar free} _
 *   _{healthy fats, vegan protein rich, fiber rich, omega rich}_
 
-###### [![fsmooth21.jpg](http://girlintheraw.com/wp-content/uploads/2015/09/fsmooth21-960x411.jpg)](http://girlintheraw.com/wp-content/uploads/2015/09/fsmooth21.jpg)
+###### ![](/images/fsmooth21.jpg)
 
 ###### INGREDIENTS:
 
@@ -61,4 +61,4 @@ When you pour it over your smoothie, you will immediately see it absorb some wat
 
 ###### HEMP SEEDS
 
-Hemp comes from the same plant that made you high in college, yes, but hemp seeds do not contain any THC and are not stimulants in any way. One of the most nutritious seeds in the world, hemp deserve to be called _superfoods_ because of it's protein content - excellent whole protein source for us vegetarians and vegans. They are filled with omega 3 and 6 essential fatty acids, Gamma Linolenic Acid (GLA), antioxidants, amino acids, fiber, iron, zinc, carotene, phospholipids, phytosterols, vitamin B1, vitamin B2, vitamin B6, vitamin D, vitamin E, chlorophyll, calcium, magnesium, sulfur, copper, potassium, phosphorus, and enzymes. They are a great raw food, and in my opinion, taste amazing for the benefits. They have a mild nutty flavor and a bit of a crunch to them. I never cook them, just sprinkle on my smoothies or salads.[![fsmooth4.jpg](http://girlintheraw.com/wp-content/uploads/2015/09/fsmooth4-960x960.jpg)](http://girlintheraw.com/wp-content/uploads/2015/09/fsmooth4.jpg)
+Hemp comes from the same plant that made you high in college, yes, but hemp seeds do not contain any THC and are not stimulants in any way. One of the most nutritious seeds in the world, hemp deserve to be called _superfoods_ because of it's protein content - excellent whole protein source for us vegetarians and vegans. They are filled with omega 3 and 6 essential fatty acids, Gamma Linolenic Acid (GLA), antioxidants, amino acids, fiber, iron, zinc, carotene, phospholipids, phytosterols, vitamin B1, vitamin B2, vitamin B6, vitamin D, vitamin E, chlorophyll, calcium, magnesium, sulfur, copper, potassium, phosphorus, and enzymes. They are a great raw food, and in my opinion, taste amazing for the benefits. They have a mild nutty flavor and a bit of a crunch to them. I never cook them, just sprinkle on my smoothies or salads.![](/images/fsmooth4.jpg)

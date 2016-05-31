@@ -19,7 +19,7 @@ date: 2013-06-05 16:02:10
 
 If you are a healthy vegan or raw foodie, you probably do not need advice regarding increasing your hearthy (heart healthy), good-fatty nuts intake. I sure know I do not! I can't really recall when I started my manic-obsessive affair with nuts, I can just say for certain I did not grow up eating, shopping, chopping them like I do now.
 
-[![OLYMPUS DIGITAL CAMERA](http://girlintheraw.com/wp-content/uploads/2014/03/balls4-1024x854.jpg)](http://girlintheraw.com/wp-content/uploads/2014/03/balls4.jpg)
+![](/images/balls4.jpg)
 
 Delicious nut and fruit balls are my favorite go-to raw preparation - [**Almond Apple balls** ](http://girlintheraw.com/?p=144 "Almond Apple Sweet Balls")for example.
 
@@ -27,7 +27,7 @@ My first great leap to Nuttyland was the discovery of nut butters. Discovery, yo
 
 I digress... Nostalgia is in the air! I guess, even though I wasn't a fan of PB as a kid, just talking about it somehow does bring out sweet childhood memories. I am sure that's what it was designed to do, don't you agree?! It is the perfect scheme... No wonder its insanely addictive! Throws a new light on the term emotional eating, too.
 
-[![nuts](http://girlintheraw.com/wp-content/uploads/2014/12/nuts.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/nuts.jpg)
+![](/images/nuts.jpg)
 
 &nbsp;
 
@@ -35,7 +35,7 @@ Back to my original thought. Little did I know that the specialty store treat my
 
 Have you ever had the pleasure, nah, privilege, of savoring **macadamia nut butter**? You simply must. I adore macadamia on its own, have enjoyed them un-raw (pshhh!) and roasted in everything from salt to caramel to my personal favorite, Hawaiian coffee (on the Islands, never the less). I tell you, being the most calorie dense and fatty nut must count for something, after all. If you think your fave maple almond butter delivers the finest in rich and concentrated flavor, that perfect blend of sweet and salty nuttiness, as it slowly melts on the back of your throat, urging you to reach for another heaping spoonful before you even swallowed the first one... well think again! Macadamia nut butter was a whole new level of its-so-creamy-I'm-burning-with-guilt pleasure.
 
-[![zen](http://girlintheraw.com/wp-content/uploads/2014/03/zen.jpeg)](http://girlintheraw.com/wp-content/uploads/2014/03/zen.jpeg)
+![zen](http://girlintheraw.com/wp-content/uploads/2014/03/zen.jpeg)](http://girlintheraw.com/wp-content/uploads/2014/03/zen.jpeg)
 
 &nbsp;
 
@@ -47,7 +47,7 @@ It is rare to find macadamia blended alone, it usually comes combined, not only 
 
 **Cashews** serve as a great base for both sweet and salty and sour preparations, it also doubles as cheese, specially if combined with nutritional yeast and some zest. **Hazelnut** and **coconut** **butters** both deserve an honorary mention in the hall of Absolutely Dreamy flavor.
 
-[![coco4](http://girlintheraw.com/wp-content/uploads/2014/03/coco4-1024x1024.jpg)](http://girlintheraw.com/wp-content/uploads/2014/03/coco4.jpg)
+![](/images/coco4.jpg)
 
 You can use cashews to replace creamy bases - dressings, sweets, even cheeses. This is one of my favorite delicious treats, [Coconut Cashew Raspberry cream.](http://girlintheraw.com/?p=135 "I love pink (foods)!")
 

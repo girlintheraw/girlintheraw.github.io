@@ -16,7 +16,7 @@ date: 2016-03-21 19:57:20
 
 New protein bars are on the market, and they are vegan, gluten free, high raw and delicious! I for one am super happy about these news, as I really do love bars and eat them on a regular basis. My go-to breakfast, when I have to take in on the road, is a smoothie and a bar. My bags are full of bars, because I carry food around just in case I'm ever hungry (like a grandma) and I snack on them often in between teaching yoga classes. I even eat them as dessert, as I figure it's a healthier option than a cookie. I am also a huge fan of hemp seeds, so when <span style="text-decoration: underline;">**[Manitoba Harvest](http://manitobaharvest.com/)**</span>&nbsp;released the new Hemp Heart Bar, I was very happy to be given new flavors to test and review.&nbsp;
 
-[![hempbar3](http://girlintheraw.com/wp-content/uploads/2016/03/hempbar3.jpg)](http://girlintheraw.com/wp-content/uploads/2016/03/hempbar3.jpg)
+![](/images/hempbar3.jpg)
 
 I tried two flavors, Chocolate and Apple cinnamon (there's a Vanilla one as well). Here's my honest review:
 
@@ -42,7 +42,7 @@ Now, Manitoba brought another bar into the game, and it's most unique feature is
 
 However, try them yourself and see - the texture might be perfect for you! The fact that they are not that crunchy makes them somewhat <span style="text-decoration: underline;">**easier to digest**</span> before a workout, and they pair perfectly with a smoothie.&nbsp;
 
-[![hempbar2](http://girlintheraw.com/wp-content/uploads/2016/03/hempbar2.jpg)](http://girlintheraw.com/wp-content/uploads/2016/03/hempbar2.jpg)
+![](/images/hempbar2.jpg)
 
 You want some of these goodies for yourself?
 

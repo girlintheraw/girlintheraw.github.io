@@ -17,7 +17,7 @@ categories:
 date: 2015-06-03 20:04:54
 ---
 
-[![rnrpdx4](http://girlintheraw.com/wp-content/uploads/2015/05/rnrpdx4.jpg)](http://girlintheraw.com/wp-content/uploads/2015/05/rnrpdx4.jpg)
+![](/images/rnrpdx4.jpg)
 
 Half Marathon Nr.8  is in the books! I would love to say that I keep on getting faster and destroying my PR each time I run, but that is unfortunately not the case. What I can say is that it does get easier (or I am getting stronger, either way works for me). And knowing that makes me feel good about myself, because I have definitely grown in this running business. What used to seem like a close to impossible task (I was dead nervous before my first half marathon), is now a distance I can actually cover with a smile on my face (but don't check my race pictures for proof).
 
@@ -27,13 +27,13 @@ Rock and Roll Portland was in one word - great. I love taking **runcations**! Al
 
 **Luckily, Portland did not disappoint!**
 
-[caption id="attachment_1281" align="alignnone" width="1632"][![What a cool place! Food trucks, food trucks everywhere...](http://girlintheraw.com/wp-content/uploads/2015/05/foodpdx3.jpg)](http://girlintheraw.com/wp-content/uploads/2015/05/foodpdx3.jpg) What a cool place! Food trucks, food trucks everywhere...[/caption]
+![](/images/foodpdx3.jpg) What a cool place! Food trucks, food trucks everywhere...[/caption]
 
 As soon as we landed, we headed out to a cool comfort food joint (not fully vegan, but with tons of options) with a couple of friends we accidentally ran into at the airport. I was fully ready to carb load for the race, and Vita Cafe delivered what promised!
 
-[![foodpdx2](http://girlintheraw.com/wp-content/uploads/2015/05/foodpdx2.jpg)](http://girlintheraw.com/wp-content/uploads/2015/05/foodpdx2.jpg)
+![](/images/foodpdx2.jpg)
 
-[![foodpdx1](http://girlintheraw.com/wp-content/uploads/2015/05/foodpdx11.jpg)](http://girlintheraw.com/wp-content/uploads/2015/05/foodpdx11.jpg)
+![](/images/foodpdx11.jpg)
 
 Acyuta and I shared huge plates and had enough to box for later. I started with a Thai coconut soup, which was thick, creamy and spicy - a meal in itself! I had a rich salad with a corn muffin on the side, and he had a sizable portion of baked potatoes, tempeh, veggies and a delicious salty scone of some kind with amazing almond gravy! God, I love gravy...
 
@@ -49,7 +49,7 @@ Portlandians covered most of the course, happily cheering on the runners. From h
 
 **All the details made for a perfect formula for a good, fun race! I would definitely do it again, and recommend it to anyone looking for a good half, or a fun city to run in.**
 
-[![pdx1](http://girlintheraw.com/wp-content/uploads/2015/06/pdx1.jpg)](http://girlintheraw.com/wp-content/uploads/2015/06/pdx1.jpg)
+![](/images/pdx1.jpg)
 
 ###### **Pre-race training**
 
@@ -71,7 +71,7 @@ The whole race was truly pleasant, which makes for a whole another racing experi
 
 ###### **Race gear**
 
-[caption id="attachment_1291" align="alignnone" width="1224"][![Legs in the air after the race!](http://girlintheraw.com/wp-content/uploads/2015/05/RnrPDX.jpg)](http://girlintheraw.com/wp-content/uploads/2015/05/RnrPDX.jpg) Legs in the air after the race![/caption]
+![](/images/RnrPDX.jpg) Legs in the air after the race![/caption]
 
 ###### **Shoes**
 
@@ -83,7 +83,7 @@ I got a pair of **Saucony Breakthru** before the race, and almost immediately re
 
 Due to the semi-chilly weather, I wore Lululemon capris - a great improvement on shorts as I chafe a lot lately! I wore a sleeveless shirt, and a light long sleeve that I took off only a few miles before the finish line. I made sure I was wearing comfortable, high-tech socks, and a good sports bra.
 
-[caption id="attachment_1292" align="alignnone" width="960"][![The medal completed the race look!](http://girlintheraw.com/wp-content/uploads/2015/05/rnrpdx5.jpg)](http://girlintheraw.com/wp-content/uploads/2015/05/rnrpdx5.jpg) The medal completed the race look![/caption]
+![](/images/rnrpdx5.jpg) The medal completed the race look![/caption]
 
 ###### **Accessories**
 
@@ -101,27 +101,27 @@ I can't eat early in the morning, so I 'forced' myself to have a few bites of a 
 
 As soon as I crossed the finish line, and took some pictures with Acyuta, I grabbed a bagel, water, and popcorn and found a good spot to sit. No matter how tired we are, we always walk it off for a few minutes (do not stop and sit immediately!), and then do some yoga to stretch and recover.
 
-[![rnryoga](http://girlintheraw.com/wp-content/uploads/2015/05/rnryoga.jpg)](http://girlintheraw.com/wp-content/uploads/2015/05/rnryoga.jpg) [![rnryoga2](http://girlintheraw.com/wp-content/uploads/2015/05/rnryoga2.jpg)](http://girlintheraw.com/wp-content/uploads/2015/05/rnryoga2.jpg)
+![](/images/rnryoga2.jpg)
 
 Lunges are great for stretching hips, specially the psoas, a hip flexor that is usually tight on runners, and to check in with all the body parts that are compromised during a longer race - knees, ankles, lower back. I move slowly and with caution, but take my time and stretch enough to start feeling my lower back, which is often sensitive and in pain after a race, hips and hamstrings loosen up. I also did a few forward folds, down dogs and vinyasas, targeting my hamstrings, calves, and all the connective tissue in between, like the achilles tendon. One of my favorite poses these days is double pigeon or fire log, it's a killer for the hips! Don't be fooled by my smile or how simple it looks, getting your shins stacked is no easy business.
 
-[caption id="attachment_1297" align="alignnone" width="2192"][![Double pigeon pose](http://girlintheraw.com/wp-content/uploads/2015/05/rnrpdx6.jpg)](http://girlintheraw.com/wp-content/uploads/2015/05/rnrpdx6.jpg) Double pigeon pose[/caption]
+![](/images/rnrpdx6.jpg) Double pigeon pose[/caption]
 
 I've only done one Rock and Roll race, it was my first full marathon in Denver 2013\. It was so cold (I also lived in Florida at the time, and the adjustment wasn't pleasant), and we were so wrecked that we didn't stay and enjoy the post-race party at all! This time around, we recovered pretty well and hang out for a few songs at the stage area. The space was huge, and it seemed like there were way more than 5k+ runners there.
 
-[![rnrpdx7](http://girlintheraw.com/wp-content/uploads/2015/05/rnrpdx7-e1432665097345.jpg)](http://girlintheraw.com/wp-content/uploads/2015/05/rnrpdx7-e1432665097345.jpg)
+![](/images/rnrpdx7-e1432665097345.jpg)
 
-[caption id="attachment_1300" align="alignnone" width="1280"][![Acyuta sporting his new RnRPDX shirt](http://girlintheraw.com/wp-content/uploads/2015/05/rnrpdx8-e1432665077413.jpg)](http://girlintheraw.com/wp-content/uploads/2015/05/rnrpdx8-e1432665077413.jpg) Acyuta sporting his new RnRPDX shirt[/caption]
+![](/images/rnrpdx8-e1432665077413.jpg) Acyuta sporting his new RnRPDX shirt[/caption]
 
 We hanged around a bit, then headed back to the hotel to feast on various Whole Foods goodies, including a vegan pizza AND vegan cupcake. Yep, we went all out!
 
 ###### **Happy Half Marathon finishers:**
 
-[![pdx4](http://girlintheraw.com/wp-content/uploads/2015/05/pdx4.jpg)](http://girlintheraw.com/wp-content/uploads/2015/05/pdx4.jpg)
+![](/images/pdx4.jpg)
 
 &nbsp;
 
-[![pdx5](http://girlintheraw.com/wp-content/uploads/2015/05/pdx5.jpg)](http://girlintheraw.com/wp-content/uploads/2015/05/pdx5.jpg)
+![](/images/pdx5.jpg)
 
 **Thanks Rock and Roll Marathon Series!** Next stops: San Jose, CA in September, and Vegas in November (my second full marathon!).
 

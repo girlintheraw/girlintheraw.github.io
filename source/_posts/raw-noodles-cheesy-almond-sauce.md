@@ -19,7 +19,7 @@ I love raw food because it makes me feel incredibly light and satisfied at the s
 
 &nbsp;
 
-[![rawnoodle9](http://girlintheraw.com/wp-content/uploads/2016/03/rawnoodle9.jpg)](http://girlintheraw.com/wp-content/uploads/2016/03/rawnoodle9.jpg)
+![](/images/rawnoodle9.jpg)
 
 There are a few ways to make raw noodles. First one is with a spiralizer, like a Mandoline slicer, which will make your veggies look just like dough noodles. I haven't invested in that fancy piece of equipment yet, and am doing pretty good without it - so no worries if you don't have one either! This dish can still be yours in a few minutes time. I have used a small device that looks like a peeler, but with 'teeth' for a long time, and it gives thin noodles similar to Mandoline's. I just can't find it since my last move, unfortunately. So I used my regular peeler, and voila - It came out just as good! You get thin but wide type of raw pasta with it.
 
@@ -29,9 +29,9 @@ I advise using raw zucchini and carrots for this, because you want to get the be
 
 [yumprint-recipe id='8']&nbsp;
 
-[caption id="attachment_2464" align="aligncenter" width="2448"][![Look at that delicious veggie goodness](http://girlintheraw.com/wp-content/uploads/2016/03/rawnoodle1.jpg)](http://girlintheraw.com/wp-content/uploads/2016/03/rawnoodle1.jpg) Look at that delicious veggie goodness[/caption]
+![](/images/rawnoodle1.jpg) Look at that delicious veggie goodness[/caption]
 
-[![rawnoodle2](http://girlintheraw.com/wp-content/uploads/2016/03/rawnoodle2.jpg)](http://girlintheraw.com/wp-content/uploads/2016/03/rawnoodle2.jpg)
+![](/images/rawnoodle2.jpg)
 
 I served my noodles with marinated tempeh. It's super easy and quick to make, not to mention delicious. I prefer to buy tempeh from my local health foods store, organic and locally made here in Asheville. If not, I like Lifelight, or Trader Joe's.&nbsp;
 
@@ -39,4 +39,4 @@ Tu make, marinate tempeh strips in Brass' liquid aminos, which is a wheat-free, 
 
 &nbsp;
 
-[![rawnoodle6](http://girlintheraw.com/wp-content/uploads/2016/03/rawnoodle6.jpg)](http://girlintheraw.com/wp-content/uploads/2016/03/rawnoodle6.jpg)
+![](/images/rawnoodle6.jpg)

@@ -24,7 +24,7 @@ I really do not want to get in on the discussion - as far as I am concerned, fre
 
 Now, I know what you might be thinking. _**Ewww... green juice is gross!**_ Well here's a recipe for a delicious one! No, really, it's super tasty (hence the comment in the title - no, really it is!).
 
-[![juiceG](http://girlintheraw.com/wp-content/uploads/2015/01/juiceG.jpg)](http://girlintheraw.com/wp-content/uploads/2015/01/juiceG.jpg)
+![](/images/juiceG.jpg)
 
 &nbsp;
 
@@ -46,7 +46,7 @@ I have a masticating juicer, Samson 6 in 1 Juicer model GB9002, in case you were
 
 I usually run my pulp through the juicer again and again till all the juice is out, and this way have very little residue. If you are one of the people that resent juicing because you feel like it's wasteful, this is the tip that will make you feel better about it! It sure helped me. I try to use the leftovers in cookies, breads, burgers as much as possible, but if I can't for whatever reason, I do not feel bad throwing out whatever pulp was left because I usually do not have a great residue.
 
-###### [![greenjuice.jpg](http://girlintheraw.com/wp-content/uploads/2015/01/greenjuice-960x892.jpg)](http://girlintheraw.com/wp-content/uploads/2015/01/greenjuice.jpg)
+###### ![](/images/greenjuice.jpg)
 
 ###### **QUICK TIPS for veggie and fruit pairings :**
 
@@ -57,7 +57,7 @@ I usually run my pulp through the juicer again and again till all the juice is o
 *   Carrots and beets are very sweet and therefore almost don't even count as veggie juice in terms of flavor, but they pack on the nutritional benefits.
 *   According to Ayurveda, fruits and veggies do not mix. From personal experience and understanding, I believe juicing is an exception to this rule. When removing fiber, both with take about an equal amount of time to digest and be processed by the body.
 *   However, stick to the mono-meal rule of Ayurveda as much as possible. Do not use too many ingredients in one juice as it will translate to too much information for the body to process. I try to stick with 4 main ingredients, plus herbs or additions. In this recipe, I consider lime and ginger spices, not main ingredients.
-[![greenjuicedriniking](http://girlintheraw.com/wp-content/uploads/2015/01/greenjuicedriniking.jpg)](http://girlintheraw.com/wp-content/uploads/2015/01/greenjuicedriniking.jpg)
+![](/images/greenjuicedriniking.jpg)
 
 ##### **Happy Juicing!**
 

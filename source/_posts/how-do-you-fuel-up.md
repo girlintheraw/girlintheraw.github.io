@@ -16,7 +16,7 @@ categories:
 date: 2015-07-08 00:58:38
 ---
 
-[![fuelSP](http://girlintheraw.com/wp-content/uploads/2015/06/fuelSP.jpg)](http://girlintheraw.com/wp-content/uploads/2015/06/fuelSP.jpg)
+![](/images/fuelSP.jpg)
 
 **Fit Approach is asking us to share how do we fuel up before and after workouts, a very important topic.**
 
@@ -39,7 +39,7 @@ After hot and fast races, where I pushed myself beyond just a comfortable pace, 
 *   **Amphipod Hand Held Bottle** - Which is where I keep my drink on the run and in a race. I have tried every type of hydration belt, and although they were ok, I fell in love with my bottle upon a recommendation from a friend multi-Ironman finisher and winner. I use a smaller one that fits my palm perfectly, and alternate between water and fizz as needed. I always bring it to longer races as well, because I can't drink from a cup while running, and like to avoid crowds and stopping.
 
 *   **Recovery powders** - the same companies (Clif, Gu, Hammer, etc) that make fizz tablets, gels, and bars. make recovery powders to be used after a workout. They usually have more carbs and protein, hence more calories as well, and are specifically designed to replenish whatever might have been lost during your workout, going beyond just the hydration aspect. They are a good choice for long training or racing (1 to 1.5h +), but I do skip them on a daily basis. If you suffer from feeling energy lows after intense workouts, definitely give these a try.
-[![OLYMPUS DIGITAL CAMERA](http://girlintheraw.com/wp-content/uploads/2015/07/mylk.jpg)](http://girlintheraw.com/wp-content/uploads/2015/07/mylk.jpg)
+![](/images/mylk.jpg)
 
 ###### **2\. Food is fuel**
 
@@ -58,7 +58,7 @@ I eat and recommend a (high) plant based diet filled with minerals and vitamins,
 *   **Smoothies** - my favorite healthy fast food! I love them before or after a workout, and the best part is, these days you can get them on the go in many locations (even Starbucks if you can believe it), which makes them a great easy access health food choice. You can add your recovery or protein powder, as well as countless superfoods, and you got a nutrition bomb that will fill you up or recover all the lost energy.
 &nbsp;
 
-[![fuel-collage](http://girlintheraw.com/wp-content/uploads/2015/07/fuel-collage.jpg)](http://girlintheraw.com/wp-content/uploads/2015/07/fuel-collage.jpg)
+![](/images/fuel-collage.jpg)
 
 This is the run down of my favorite fueling options (yes, there are quite a few) for any kinds of workouts! I hope you find something useful, or that you haven't tried before. Either way, this hot (and maybe humid, depending on where you're at) summer is in full swing so keep safe by hydrating and fueling properly! Although summer means more time outdoors, it can also mean more time lunging by the pool/beach, partying, eating and feeling too hot to work out. Keeping your fuel levels high means having energy to maintain your fitness routine (or kick it up a bit).
 

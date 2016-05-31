@@ -17,7 +17,7 @@ date: 2015-06-17 20:13:11
 
 Yoga is an incredible discipline (practice, lifestyle.. whatever you want to call it) that delivers so much more than you actually thought possible. From changing your whole outlook on life, to changing your posture, yoga holds mysteries I feel like I could spend lifetimes exploring. One of the most obvious benefits, and probably the most explored one in the West, is the **physical or the health benefit of yoga**.
 
-[![reversewarrior](http://girlintheraw.com/wp-content/uploads/2015/06/reversewarrior.jpg)](http://girlintheraw.com/wp-content/uploads/2015/06/reversewarrior.jpg)
+![](/images/reversewarrior.jpg)
 
 Yoga can help you gain strength, flexibility, loose weight, you name it. You just have to find the right type and practice properly and sufficiently. Even if you are not a "yoga junkie", this practice is a great compliment to any other athletic activity.
 
@@ -41,7 +41,7 @@ Runners should pay special attention to their hamstrings, psoas muscle, IT band,
 
 ###### **1\. Downward Facing dog, with a leg lift (Eka Pada Adho Mukha Svanasana)**
 
-[![DDleg](http://girlintheraw.com/wp-content/uploads/2015/06/DDleg.jpg)](http://girlintheraw.com/wp-content/uploads/2015/06/DDleg.jpg)
+![](/images/DDleg.jpg)
 
 Downward dog is one of the best yoga poses for anyone! It may seem like a resting or in-between pose in a flow class, but when performed properly, down dog will stretch your whole body. From an energetic perspective, this pose balances all the seven chakras or energy centers. As simple as it may seem, to a beginner this pose is very hard and takes time to master!
 
@@ -55,7 +55,7 @@ Once you start to build flexibility and upper body strength, work on One Legged 
 
 ###### **2\. Lunge with a Twist**
 
-[![twistlunge](http://girlintheraw.com/wp-content/uploads/2015/06/twistlunge.jpg)](http://girlintheraw.com/wp-content/uploads/2015/06/twistlunge.jpg)
+![](/images/twistlunge.jpg)
 
 Lunge poses and variations are great for runners - hence the name "Runner's lunge". Start by stepping the right foot forward in between your hands (once you master the one legged dog, you can work on stepping forward from that pose). Front knee is bent 90 degrees, meaning knee over ankle alignment. Press the left heel back, making the left leg straight and engaged. Pull the belly in and look forward to start, spine long.
 
@@ -65,7 +65,7 @@ This pose targets the hip of the front leg, and the psoas and quads of the back 
 
 ###### **3\. Warrior II and Reverse Warrior (Virabhadrasana II, Viparita Virabhadrasana)**
 
-[![reverse2](http://girlintheraw.com/wp-content/uploads/2015/06/reverse2.jpg)](http://girlintheraw.com/wp-content/uploads/2015/06/reverse2.jpg)
+![](/images/reverse2.jpg)
 
 Warrior 2 is another very popular and well known pose, and for a good reason. Warriors build leg and lower body strength, while stretching the hips. Start in the same stance as runner's lunge, but spin the back heel down, so the back foot is parallel to the back of the mat, and the front foot parallel to the front of the mat. Bend the front knee 90 degrees, and stand up, stretching the right arm forward (same as the front leg), left arm back, in line with your shoulders and the palms facing down. This is Warrior 2\. Settle into the hips, engaging the right glute and opening the hip, tracking the knee towards the pinkie toe (it has a tendency to turn in, specially on tight hips).
 
@@ -73,7 +73,7 @@ To come into a reverse warrior, flip the right palm up and lift the arm up, rele
 
 ###### **4\. Extended Side Angle Pose (Utthita Parsvakonasana)**
 
-[![sideangle](http://girlintheraw.com/wp-content/uploads/2015/06/sideangle.jpg)](http://girlintheraw.com/wp-content/uploads/2015/06/sideangle.jpg)
+![](/images/sideangle.jpg)
 
 Parsvakonasana has the same set up as Warrior II -  legs in a lunge, back leg parallel to the back of the mat, with the heel of the front foot in line with the arch of the back foot. Bend into that front knee and align it over the ankle, work on getting the front thigh parallel to the ground - meaning, find a comfortable but wide stance. From warrior II, release the front arm onto the thigh (same arm, same leg), with the elbow bent and the palm facing up. Reach the back arm overhead, palm facing the ground, and make your arm straight and engaged. You are creating one straight line all the way from your back foot to the fingertips, extending the side body (hence the name).
 
@@ -81,7 +81,7 @@ This pose strengthens the legs and glutes, stretches the front hip and the inner
 
 ###### **5\. Extended Triangle Pose (Utthita Trikonasana) **
 
-[![triangle](http://girlintheraw.com/wp-content/uploads/2015/06/triangle.jpg)](http://girlintheraw.com/wp-content/uploads/2015/06/triangle.jpg)
+![](/images/triangle.jpg)
 
 &nbsp;
 
@@ -97,7 +97,7 @@ Your bottom fingertips do not need to touch the ground (notice the picture)! Tha
 
 ###### **6\. Handstand (Adho Mukha Vrksasana)**
 
-[![handstand](http://girlintheraw.com/wp-content/uploads/2015/06/handstand.jpg)](http://girlintheraw.com/wp-content/uploads/2015/06/handstand.jpg)
+![](/images/handstand.jpg)
 
 Bonus tip from yoga: **Have some fun**! Handstands are one of the most fun (albeit sometimes terrifying) poses you can do in yoga. You can feel that childlike playfulness, test your strength, and end up exhilarated and with a great sense of accomplishment! If handstands are not your thing, do not fear - there are plenty of **inversions** in yoga you can give a try.
 

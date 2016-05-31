@@ -31,9 +31,9 @@ Everything is pumpkin spice and eggnog flavored or colored (like pumpkin spice n
 
 My Netflix queue is getting very overcrowded with holiday classics...
 
-[![FullSizeRender (2)](http://girlintheraw.com/wp-content/uploads/2014/12/FullSizeRender-2.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/FullSizeRender-2.jpg)
+![](/images/FullSizeRender-2.jpg)
 
-[![FullSizeRender (1)](http://girlintheraw.com/wp-content/uploads/2014/12/FullSizeRender-1.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/FullSizeRender-1.jpg)
+![](/images/FullSizeRender-1.jpg)
 
 **All in all, the holidays are here!** And so is the time to sit and eat with your loved ones. For some a happy time, and for others... well not so much.
 If you are a vegan, gluten free, 'special diet' foodie, surely you are familiar with the struggle of eating well with family and friends, while staying true to your personal habits and choices! How many holiday dinners do you have to spend explaining exactly What is _Veganism_ and Why you do not eat meat ("But you will eat some turkey, right?" - asks the grandma).
@@ -53,7 +53,7 @@ If you are a vegan, gluten free, 'special diet' foodie, surely you are familiar 
 *   Quickly find tons of vegan friends and celebrate all the holidays with them.
 Just so many options! Admit it, the holiday season does not seem so scary anymore, now does it?
 
-[caption id="attachment_1119" align="alignnone" width="420"][![Specially if Veganism is brought up.](http://girlintheraw.com/wp-content/uploads/2014/12/turkey-meme.png)](http://girlintheraw.com/wp-content/uploads/2014/12/turkey-meme.png) Specially if Veganism is brought up.[/caption]
+![](/images/turkey-meme.png) Specially if Veganism is brought up.[/caption]
 
 I kid, I kid... It's easy for me to talk. I have been 'different' for about 12 years now. My mom was actually the first vegetarian in the family so she definitely broke the ice with my Grandparents and relatives. Let's just say no one asks questions anymore, unless they want to get a whole lecture on what when and why of eating vegan, vegetarian, healthy, Ayurvedic.. you name it.
 
@@ -91,7 +91,7 @@ That silly meme - "How do you recognize a vegan? Don't worry, they'll tell you!"
 
 My advice is: **No need to hide you are vegan!** Learn how to be polite, yet straightforward - a diplomatic vegan if you will! If you feel like you simply cannot share your choices, then rethink putting yourself in an uncomfortable situation in the first place.
 
-[![anchorman_meme](http://girlintheraw.com/wp-content/uploads/2014/12/anchorman_meme.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/anchorman_meme.jpg)
+![](/images/anchorman_meme.jpg)
 
 #### **3\. Plan your meals and fight hunger intelligently.**
 
@@ -105,7 +105,7 @@ If hunger is your issue, make sure you are not starving when walking into a Chri
 *   ###### **Veganize your holiday favorites**
 You have loved eggnog your whole life and simply can't resist having a taste? Lucky for you, there's tons of vegan eggnog out there - So Delicious and Silk make them, to name a few. My favorite shops Whole Foods Market and Trader Joe's stalk on vegan holiday favorites just as much as the non-vegan ones. Vegan Turkey, Maple Cookies... It's 2014 and there is no excuse for missing out on holiday favorites, everything has been **veganized** for you already!
 
-[caption id="attachment_1121" align="alignnone" width="300"][![Source: sodeliciousdairyfree.com](http://girlintheraw.com/wp-content/uploads/2014/12/jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/jpg) Source: sodeliciousdairyfree.com[/caption]
+![](/images/12/jpg) Source: sodeliciousdairyfree.com[/caption]
 
 *   ###### **Cook yourself **
 I believe most vegans cook regularly, that's the way I make it very feasible. But I know it isn't true. If you are one of those vegans that doesn't cook, this is the season to give it a try! You might have more time due to holidays off from work, there is a lot of delicious produce in the markets, and the spirit of good eating is in the air. Even if it's just picking up a pre-made Tofurkey (vegan turkey), and adding a salad and side potatoes to it, I guarantee home cooking will make your holidays much more savory.
@@ -118,7 +118,7 @@ But give this idea at least a try! Main events and dinners may be reserved alrea
 
 Otherwise, bringing a vegan dish to any event is a great way to ensure you have something to eat, other's get to try a vegan dish, and hosts do not have to invent an option for you. If by chance another vegan attends the same event, they will be immensely grateful.
 
-[![OLYMPUS DIGITAL CAMERA](http://girlintheraw.com/wp-content/uploads/2014/12/GFP4.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/GFP4.jpg)
+![](/images/GFP4.jpg)
 
 These [Vegan &amp; Gluten Free pancakes](http://girlintheraw.com/?p=489 "Gluten Free Vegan Holiday Pancakes") look like a pretty great holiday brunch to me!
 
@@ -136,7 +136,7 @@ First off, know why you are doing this and be confident. If you are not confiden
 
 If your friends or family persist on making you feel uncomfortable because of Veganism, well I'm sorry to tell you - bottom line is, all relationships are in your hands. Do not start fights at the Christmas tree, do not take comments personally and get insulted. Know when to walk away and leave it be. You will only feel as much pressure as you allow people to put on you.
 
-[![simpsons](http://girlintheraw.com/wp-content/uploads/2014/12/simpsons.png)](http://girlintheraw.com/wp-content/uploads/2014/12/simpsons.png)
+![](/images/simpsons.png)
 
 **BONUS ROOKIE ADVICE:**
 

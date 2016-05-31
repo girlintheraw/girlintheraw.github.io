@@ -25,7 +25,7 @@ Don't you love using romantic (i.e. cheesy) names to describe your foods, like I
 
 Piña Coladas take me to a beach far far away..  Tall glass in my hand, laying on the sand and taking in a spectacular view of the ocean that never ends... And I don't even drink! Imagine the subconscious effects this name has on the partying folk - it's an instant hit!
 
-[![beach](http://girlintheraw.com/wp-content/uploads/2014/01/beach.jpeg)](http://girlintheraw.com/wp-content/uploads/2014/01/beach.jpeg)
+![beach](http://girlintheraw.com/wp-content/uploads/2014/01/beach.jpeg)](http://girlintheraw.com/wp-content/uploads/2014/01/beach.jpeg)
 
 Actually, I believe all foods can become magical and tropical, exotic and unique if we put some love and care into our work. All it needs is a special touch of care and consciousness, while prepping our meals and sitting down at the table. Love does flow through the stomach if you ask me! Love for ourselves, our bodies and minds.
 
@@ -39,7 +39,7 @@ At least I work on starting my days right, when I have the time for it. A beauti
 
 &nbsp;
 
-[![smoo1](http://girlintheraw.com/wp-content/uploads/2014/01/smoo1.jpg)](http://girlintheraw.com/wp-content/uploads/2014/01/smoo1.jpg)
+![](/images/smoo1.jpg)
 
 ## <span style="color: #f87506;">**Piña Colada Smoothie Bowl**</span>
 
@@ -61,7 +61,7 @@ You know the drill, blend and devour! It's delicious with granola as well, sweet
 
 &nbsp;
 
-[![ smoothiebowl3.jpg](http://girlintheraw.com/wp-content/uploads/2014/01/smoothiebowl3.jpg)](http://girlintheraw.com/wp-content/uploads/2014/01/smoothiebowl3.jpg)
+![](/images/smoothiebowl3.jpg)
 
 &nbsp;
 

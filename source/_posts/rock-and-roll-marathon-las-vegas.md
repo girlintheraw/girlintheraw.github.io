@@ -26,13 +26,13 @@ This was the type of an event to plan for in advance. We booked our hotel and fl
 
 We arrived on Saturday afternoon, the race was Sunday evening. We took a quick stop in Salt Lake City, Utah. As we had a few hours, Acyuta and I figured we should take advantage, so we rented a car and drove to downtown. SLC is beautiful! It was our first time, and i have to say I'm impressed. I haven't seen many US cities with such beautiful architecture, and it was very clean and organized as well.
 
-[caption id="attachment_1975" align="aligncenter" width="960"][![Dancing in front of Temple Square](http://girlintheraw.com/wp-content/uploads/2015/11/dacnerslc-960x924.jpg)](http://girlintheraw.com/wp-content/uploads/2015/11/dacnerslc.jpg) Dancing in front of Temple Square, SLC[/caption]
+![](/images/dacnerslc.jpg) Dancing in front of Temple Square, SLC[/caption]
 
 We took some yoga pictures (but of course), walked around quite a bit, and ate some acai bowls with fresh squeezed green juice. It was all in good fun, until we got a flat tire on our way back to the airport!!! Adventure begins here... Luckily, we had those extra 30 minutes to spare, fixing the tire and all (and I helped, yes I did!), and we made it to our flight on time. I am so happy to be finally growing up, and learning how to head to places EARLY, not even on time! It really pays off in situations like these. I used to be late everywhere, every day, all the time.
 
 ....and after another quick flight, we finally made it to Vegas!!!
 
-[![vegas16](http://girlintheraw.com/wp-content/uploads/2015/11/vegas16-960x534.jpg)](http://girlintheraw.com/wp-content/uploads/2015/11/vegas16.jpg)
+![](/images/vegas16.jpg)
 
 ###### THE EXPO
 
@@ -44,9 +44,9 @@ The expo itself was great! With over 30k runners comes an expo to match - it was
 
 All in all, my Vegas adventure kicked off with a bang! I ended up logging aver 3k steps on my Jawbone on Saturday, one thing you DON'T WANT TO DO BEFORE THE RACE. I woke up in NC, spend midday in Utah, and afternoon in Vegas, my day had 27h. Needless to say, we were all tired.
 
-[caption id="attachment_1982" align="aligncenter" width="960"][![Nathalia and I ready to rock ](http://girlintheraw.com/wp-content/uploads/2015/11/vegas1-960x1280.jpg)](http://girlintheraw.com/wp-content/uploads/2015/11/vegas1.jpg) Nathalia and I ready to rock[/caption]
+![](/images/vegas1.jpg) Nathalia and I ready to rock[/caption]
 
-[caption id="attachment_1986" align="aligncenter" width="960"][![Fueling up pre-race with vegan goodies](http://girlintheraw.com/wp-content/uploads/2015/11/vegas2-960x720.jpg)](http://girlintheraw.com/wp-content/uploads/2015/11/vegas2.jpg) Fueling up pre-race with vegan goodies[/caption]
+![](/images/vegas2.jpg) Fueling up pre-race with vegan goodies[/caption]
 
 ###### PRE-RACE PREP
 
@@ -56,13 +56,13 @@ I grabbed food to go at WFM, and after a few last minute errands, we came back t
 
 I'm not sure how that happened, I got noodles, veggies and similar form the salad bar. I normally can't handle spicy, what to speak of pre-race, so I tried to eat as little of it as possible, fueling up on crackers and salad. As it was a night race, I knew my digestion might come haunt me later, and it surely did, despite my best efforts to avoid anything that might upset it.
 
-[caption id="attachment_2008" align="aligncenter" width="960"][![Enjoying the night view from my room](http://girlintheraw.com/wp-content/uploads/2015/11/vegas6-e1448596821587-960x720.jpg)](http://girlintheraw.com/wp-content/uploads/2015/11/vegas6.jpg) Enjoying the night view from my room[/caption]
+![](/images/vegas6.jpg) Enjoying the night view from my room[/caption]
 
 ### ROCK AND ROLL MARATHON LAS VEGAS - the start line
 
-[caption id="attachment_1987" align="aligncenter" width="960"][![View from my hotel window - thousands of runners at the pre race concert](http://girlintheraw.com/wp-content/uploads/2015/11/vegas3-e1448382063984-960x720.jpg)](http://girlintheraw.com/wp-content/uploads/2015/11/vegas3-e1448382063984.jpg) View from my hotel window - thousands of runners at the pre race concert[/caption]
+![](/images/vegas3-e1448382063984.jpg) View from my hotel window - thousands of runners at the pre race concert[/caption]
 
-[caption id="attachment_1984" align="aligncenter" width="646"][![The concert, source: runrockandroll.com](http://girlintheraw.com/wp-content/uploads/2015/11/rnrlv2.jpg)](http://girlintheraw.com/wp-content/uploads/2015/11/rnrlv2.jpg) The concert by kid rock, source: runrockandroll.com[/caption]
+![](/images/rnrlv2.jpg) The concert by kid rock, source: runrockandroll.com[/caption]
 
 I had an amazing luck of having a front row (or better yet, balcony) seat to the race right from the comfort of my hotel room. I saw them prepping the stage hours in advance, and runners began flowing in at around 2pm. Race began at 4:30, but my corral 22 wasn't supposed to take off till about 5pm, so I enjoyed my relaxation time for as long as possible. And by relaxation time, I mean getting more and more excited by the minute, while my husband slept soundly by my side. I just couldn't control my race jitters.
 
@@ -74,11 +74,11 @@ Natalia went to drop of her hubby at the 10k start (different place than half an
 
 The street right in front of us was filled with runners racing northbound, and we had to make our way through them to get to the other side, where the start line crowd was slowly walking/pushing it's way to start running southbound (there was a turnaround point at about 1k-1m mark). Once we made it though the fence, and slowly pushed our way through with no start line in sight, we finally heard the announcer calling corral 25! We were 3 corrals behind, and my nerves started acting up as I remembered the 5h cut off time. I could tell by the bib numbers and the folk around me that I was definitely in the wrong crowd and needed to move up soon if I wanted to finish my marathon.
 
-[caption id="attachment_1995" align="aligncenter" width="960"][![It](http://girlintheraw.com/wp-content/uploads/2015/11/vegas17-e1448391466929-960x1280.jpg)](http://girlintheraw.com/wp-content/uploads/2015/11/vegas17-e1448391466929.jpg) It's not a party without a blurry start-line selfie[/caption]
+![](/images/vegas17-e1448391466929.jpg) It's not a party without a blurry start-line selfie[/caption]
 
 We gave up on pushing through, jumped out of the fenced area, ran towards the very very start line, and then tried to make our way back in. There were no open entrances, so I pulled a yoga/limbo move and squeezed myself through the fence bars! There are no words to describe the situation, it was all crazy, wild, hilarious and exhilarating. Nathalia couldn't believe it, and she just stood there shocked. This was one of the very few situations that make me feel lucky to be tiny. And luckily, Nathalia is the same size as me so I encouraged her to push through, and she made it! Just in time for corral 26.... <span style="text-decoration: underline;">**AND OFF WE WENT!**</span>
 
-[caption id="attachment_1996" align="aligncenter" width="600"][![A true running festival](http://girlintheraw.com/wp-content/uploads/2015/11/vegas15.jpg)](http://girlintheraw.com/wp-content/uploads/2015/11/vegas15.jpg) A true running festival - wish i could have seen it from this perspective[/caption]
+![](/images/vegas15.jpg) A true running festival - wish i could have seen it from this perspective[/caption]
 
 ### Rock and Roll Marathon Las Vegas - the race
 
@@ -104,13 +104,13 @@ I started tearing up - it happens to me a few times during a race, even on a tra
 
 I looked at my watch, and was at 4h and something. At that point<span style="text-decoration: underline;">** I realized I won't make my 4:30-4:35min goal**</span>, as I had slowed down too much in the last 6 miles or so. But I didn't want to get too discouraged. Luckily, those damn cramps actually got a tad better, it was only my legs, mainly the knees and quads that were hurting.
 
-[![vegas19](http://girlintheraw.com/wp-content/uploads/2015/11/vegas19.jpg)](http://girlintheraw.com/wp-content/uploads/2015/11/vegas19.jpg)
+![](/images/vegas19.jpg)
 
 <span style="text-decoration: underline;">**Miles 23-26.2.**</span> The Strip could not have come sooner! When I finally saw the lights, hotels and chapels again, I was so happy. As I was turning into the Las Vegas Blvd. I saw<span style="text-decoration: underline;">** Acyuta at the corner waiting for me!!!**</span> I don't know who was more shocked, me or him! I was very happy, and I tried not to cry. He really saved me. We began running together, right at the point where it started to get really chilly and crazy windy! At some points I actually ran behind him, and he had his finishers blanket on, which was flowing on the wind and into my face. Those last three miles feel like the longest ever. But it was great not to be alone, and on the Strip again. There was music and the party seemed to have still been going on. There was the coolest girl DJ right at mile 24, and what I really liked was the fact they had 2 speaker stations for most performers, spaced apart. That way, you would run and pass the stage with a performer, and after a minute or two pass the second speaker playing the same music! You get to enjoy the music longer, and different styles and performers don't overlap as much.
 
 My Garmin announced 26.2 miles, but the finish line was nowhere to be seen. We kept on running, and I simply couldn't believe I wasn't stopping at all. I was at a very slow pace at that point, but man, I wasn't walking or stopping!!! Acyuta kept on repeating "You're doing great, you're almost there", and finally, that finish line appeared. I crossed at 4:52, only 4min faster than my first, very hilly and challenging marathon, and about 20min slower than what I had hoped for. But boy, was I happy!
 
-[caption id="attachment_1994" align="aligncenter" width="551"][![Happy runners ](http://girlintheraw.com/wp-content/uploads/2015/11/vegas18.jpg)](http://girlintheraw.com/wp-content/uploads/2015/11/vegas18.jpg) Happy runners[/caption]
+![](/images/vegas18.jpg) Happy runners[/caption]
 
 **I FINISHED!!!!!!!!!**
 
@@ -118,9 +118,9 @@ My legs were killing me! I tried to walk it off, I tried to squat and stretch. A
 
 I was emotional, talking to Acyuta about my and his experience, and all of a sudden, I got crazy cold. I started to shiver, and we realized we forgot to bring our metro passes - how are we going to make it back to the hotel!? It was about 2-3 miles away, at that point an eternity. We stirred into the Bellagio to warm up. There were tons of runners everywhere, and the security definitely wasn't happy - they kept on lifting us up as we were sitting on the floor all over the  place. Nathalia and her husband were super nice, and eventually came to pick us up with the car, but not before we walked around all lost and confused for a good amount of time.
 
-[caption id="attachment_2003" align="aligncenter" width="960"][![If I look a bit pale, it](http://girlintheraw.com/wp-content/uploads/2015/11/vegas8-e1448594835640-960x1280.jpg)](http://girlintheraw.com/wp-content/uploads/2015/11/vegas8-e1448594835640.jpg) If I look a bit pale, it's cuz I just ran a marathon..[/caption]
+![](/images/vegas8-e1448594835640.jpg) If I look a bit pale, it's cuz I just ran a marathon..[/caption]
 
-[caption id="attachment_2002" align="aligncenter" width="960"][![vegas7](http://girlintheraw.com/wp-content/uploads/2015/11/vegas7-960x1280.jpg)](http://girlintheraw.com/wp-content/uploads/2015/11/vegas7.jpg) Acyuta's hat says: I love running, just not while doing it. Feels about right[/caption]
+![](/images/vegas7.jpg) Acyuta's hat says: I love running, just not while doing it. Feels about right[/caption]
 
 After the race, I came back to the hotel, took a nice hot bath, and then headed out to party! I am not kidding. We had no real food, there was no other choice. I finished at 10pm, and it was midnight by the time we sat down to eat. But that's Vegas baby! Acyuta and I shared teriyaki rice and quinoa salad, it was satisfactory. We listened to a live rock band performing Led Zeppelin, which got me in the mood immediately.
 
@@ -130,7 +130,7 @@ After the race, I came back to the hotel, took a nice hot bath, and then headed 
 
 I crossed 20 miles at 3;37, or 10:54 pace, and finished at 4:52:20, or 11:09 pace overall. That's all chip, not Garmin time, according to which the race was about 1k longer. That means I truly messed up my time in the last 6-9 miles, which is all, to be honest, the result of my training and not having enough long runs. Which also means that, hopefully, I'll know how to fix it next time!
 
-[caption id="attachment_2020" align="aligncenter" width="600"][![The medal spins! ](http://girlintheraw.com/wp-content/uploads/2015/11/vegasmedal.gif)](http://girlintheraw.com/wp-content/uploads/2015/11/vegasmedal.gif) The medal spins![/caption]
+![The medal spins! ](http://girlintheraw.com/wp-content/uploads/2015/11/vegasmedal.gif)](http://girlintheraw.com/wp-content/uploads/2015/11/vegasmedal.gif) The medal spins![/caption]
 
 Here's a quick run down of what I did to recover:
 
@@ -143,21 +143,21 @@ Here's a quick run down of what I did to recover:
 7.  Almost forgot - do some Yoga! Always the best choice.
 Here are a few pictures of Vegas:
 
-[![vegas11](http://girlintheraw.com/wp-content/uploads/2015/11/vegas11-960x1280.jpg)](http://girlintheraw.com/wp-content/uploads/2015/11/vegas11.jpg):
+![](/images/vegas11.jpg):
 
-[![vegas20](http://girlintheraw.com/wp-content/uploads/2015/11/vegas20-e1448391452769-960x720.jpg)](http://girlintheraw.com/wp-content/uploads/2015/11/vegas20-e1448391452769.jpg)
+![](/images/vegas20-e1448391452769.jpg)
 
-[![vegas21](http://girlintheraw.com/wp-content/uploads/2015/11/vegas21-960x720.jpg)](http://girlintheraw.com/wp-content/uploads/2015/11/vegas21.jpg)
+![](/images/vegas21.jpg)
 
-[![vegas13](http://girlintheraw.com/wp-content/uploads/2015/11/vegas13-960x1009.jpg)](http://girlintheraw.com/wp-content/uploads/2015/11/vegas13.jpg)
+![](/images/vegas13.jpg)
 
-[![vegas14](http://girlintheraw.com/wp-content/uploads/2015/11/vegas14-e1448321967278-960x720.jpg)](http://girlintheraw.com/wp-content/uploads/2015/11/vegas14-e1448321967278.jpg)
+![](/images/vegas14-e1448321967278.jpg)
 
-[![vegas22](http://girlintheraw.com/wp-content/uploads/2015/11/vegas22.jpg)](http://girlintheraw.com/wp-content/uploads/2015/11/vegas22.jpg)
+![](/images/vegas22.jpg)
 
-[![vegas5](http://girlintheraw.com/wp-content/uploads/2015/11/vegas5-960x689.jpg)](http://girlintheraw.com/wp-content/uploads/2015/11/vegas5.jpg)
+![](/images/vegas5.jpg)
 
-[![vegas10](http://girlintheraw.com/wp-content/uploads/2015/11/vegas10-e1448596699811-960x1280.jpg)](http://girlintheraw.com/wp-content/uploads/2015/11/vegas10-e1448596699811.jpg)
+![](/images/vegas10-e1448596699811.jpg)
 
 CONCLUSION: This was a real fun experience, and I am seriously considering repeating it next year, but probably with the half marathon course.
 

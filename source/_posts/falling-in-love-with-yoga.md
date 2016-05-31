@@ -13,7 +13,7 @@ categories:
 date: 2015-04-22 03:26:41
 ---
 
-[![reverse-warrior](http://girlintheraw.com/wp-content/uploads/2015/04/reverse-warrior.jpg)](http://girlintheraw.com/wp-content/uploads/2015/04/reverse-warrior.jpg)
+![](/images/reverse-warrior.jpg)
 
 I woke up this windy and chilly Monday morning and turned to my iPhone for some 'inspiration' before stumbling out of bed and on a walk with Zen. Yes, checking your phone right when you wake up, and right before bed, is the **worst habit** ever. And I have it! The world of social media is so vast, and so powerful, it's like an internet black hole that will suck you right in.
 
@@ -32,7 +32,7 @@ I went on my doggy walk fighting with that imaginary person in my head (imaginar
 
 I began psychologically analyzing the person in my head - she clearly has control issues, I thought. I have definitely encountered people like that in my class, people who have serious blockages in listening and following someone's instructions. People who do not like to be told to do something differently or receive an adjustment. People who walk into the class in a bad mood and have no intention of changing it, and you shouldn't tell them to either. I concluded I know all about it and it sucks trying to teach yoga to people like that.
 
-[![meditate2](http://girlintheraw.com/wp-content/uploads/2015/04/meditate2.jpg)](http://girlintheraw.com/wp-content/uploads/2015/04/meditate2.jpg)
+![](/images/meditate2.jpg)
 
 ###### ** And then I pulled out my mat and started breathing...**
 
@@ -64,7 +64,7 @@ But to each their own, and that is surely true with yoga. There are plenty of pe
 *   Practice _pranayama_, yogic deep breathing. Remember it in stressful situations, and explore the benefits.
 *   If you need special instructions, or are shy, private classes are the ultimate luxury in yoga. You don't need to dress up in Lululemon, no need to even get out of the house, and the instructor will tailor the practice specifically for you, your body and your mind.
 *   Are you philosophically inclined? Thing about your life's path and purpose a lot? Then you have entered the real realm of yoga, the union of body, mind, spirit, and the ultimate union of spirit with the universe or the divine. Read a few books (Yoga Sutras, and The Bhagavad Gita are my favorite). Forget about the _asana_ (poses)! You might find some answers, I sure know I did.. and this is **the main reason I practice yoga**, if you were wondering.
-[![yoga1](http://girlintheraw.com/wp-content/uploads/2015/04/yoga1.jpg)](http://girlintheraw.com/wp-content/uploads/2015/04/yoga1.jpg)
+![](/images/yoga1.jpg)
 
 At the end of the day, unpleasant thoughts, anger, frustration, stress are great motivators to practice yoga. Everything happens for a reason, and if you look for it, you may find a great push towards something great. I started my Monday with an imaginary anger-driven quarrel, and ended up on the mat, reconnecting with the core reason why I love, practice and teach yoga for a living. **Now, all I can say to that experience is: Thank you! **
 

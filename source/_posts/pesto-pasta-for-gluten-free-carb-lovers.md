@@ -15,7 +15,7 @@ categories:
 date: 2015-07-20 17:32:41
 ---
 
-[![pestopasta1](http://girlintheraw.com/wp-content/uploads/2015/07/pestopasta1.jpg)](http://girlintheraw.com/wp-content/uploads/2015/07/pestopasta1.jpg)
+![](/images/pestopasta1.jpg)
 
 I love pasta, does that even need saying? I mean, who doesn't love pasta (if you answer ME, then we are no longer friends, sorry). I grew up on fine carbs of Mediterranean Croatian cuisine, and I have even witnessed my grandma and mom making their own pasta with their bare hands! Anything pasta related is the ultimate in comfort food for me.
 
@@ -29,7 +29,7 @@ It's the improvised **pesto sauce** that really made my day! As it sometimes goe
 
 _{vegan, gluten free, refined sugar free, high carb}_
 
-[![pestopasta2](http://girlintheraw.com/wp-content/uploads/2015/07/pestopasta2.jpg)](http://girlintheraw.com/wp-content/uploads/2015/07/pestopasta2.jpg)
+![](/images/pestopasta2.jpg)
 
 **PESTO SAUCE:**
 

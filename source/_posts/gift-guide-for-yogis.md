@@ -19,7 +19,7 @@ Holidays are here and we've got some gifting to do! The custom of giving and rec
 
 If you know someone obsessed with yoga, or are a yogi yourself with tons of friends at your local studio to gift this season, do not fear, I got you covered. Knowing your audience and their passions, hobbies and interests is a perfect tool to find them an appropriate gift!
 
-[caption id="attachment_1084" align="alignnone" width="640"][![Outfit: Funky yoga tank + Lululemon Wunder Under](http://girlintheraw.com/wp-content/uploads/2014/12/yoga-tree.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/yoga-tree.jpg) Outfit: Funky yoga tank + Lululemon Wunder Under's[/caption]
+![](/images/yoga-tree.jpg) Outfit: Funky yoga tank + Lululemon Wunder Under's[/caption]
 
 Before we get into all the fabulous shopping opportunities, I would like to acknowledge this is also a **great season to be thankful** for all we have and not waste our resources and get caught in the shopping fever if we can avoid it. Yogis in particular know there is more to life than just material things in life, and always seek for deeper meaning in everything. So wether you want to drop an item in the basket to feed the homeless this season, or donate to a good cause, it is always very rewarding to do something nice for those that truly need it, people you may not even know. Being grateful and conscious of your actions is a reward in itself, and you can apply it in many different ways this season.
 
@@ -44,11 +44,11 @@ Taking all that in mind, it's always nice to drop a gift under the Christmas tr
 If your yogi loves their yoga so much they look like they are going to class all the time, they will probably enjoy a beautiful yoga jewelry piece that can remind them of their favorite pastime - at all times! Etsy is a good marketplace for these products - and you will be supporting a local business or an individual with a passion.
 
 *   ###### **Yogala Jewelry**
-[caption id="attachment_1086" align="alignnone" width="570"][![Shiva Yoga Mala](http://girlintheraw.com/wp-content/uploads/2014/12/shivamala.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/shivamala.jpg) Shiva Yoga Mala[/caption]
+![](/images/shivamala.jpg) Shiva Yoga Mala[/caption]
 
 How can I not mention my own product? I make unique handmade Yoga Malas and Bracelets. Malas were originally Hindu and Buddhist prayer beads, consisting of 108 sacred beads used to meditate and chant mantras on. They were also worn by devotees of yogi cultures to show their preference and represent their culture or practices. Today they have grown to be a very recognizable fashion item amongst yogis all over the world. A boho or hippie style fashionista can be caught wearing them as well! I use materials from India and South America, and offer various collections (Chakra, Shiva, Aura to name a few). You will find a pice of jewelry for a Yoga dude in your life as well!
 
-[caption id="attachment_1085" align="alignnone" width="1878"][![Goddess of Love Mala](http://girlintheraw.com/wp-content/uploads/2014/12/love.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/love.jpg) Goddess of Love Mala[/caption]
+![](/images/love.jpg) Goddess of Love Mala[/caption]
 
 #### **2\. Fancy Yoga Pants**
 
@@ -59,7 +59,7 @@ This is probably the most popular yoga brand today. It is a great big retailer, 
 
 Product spotlight:** Wunder Under Pants**
 
-[caption id="attachment_1087" align="alignnone" width="540"][![Source: Lululemon.com](http://girlintheraw.com/wp-content/uploads/2014/12/LW5E34S_016087_2.jpeg)](http://girlintheraw.com/wp-content/uploads/2014/12/LW5E34S_016087_2.jpeg) Source: Lululemon.com[/caption]
+![Source: Lululemon.com](http://girlintheraw.com/wp-content/uploads/2014/12/LW5E34S_016087_2.jpeg)](http://girlintheraw.com/wp-content/uploads/2014/12/LW5E34S_016087_2.jpeg) Source: Lululemon.com[/caption]
 
 They come in long and crop. These are the most common yoga pants you will find, they always carry the model regardless of the season. However, besides the regular black they come in fun patterns and colors, with an option of luon (cottony) and luxtreme (more sweat wicking) fabric. I definitely advise you to get creative! We yogis love colorful funky pants. Price: $82.00+ Capris. $92.00-102.00 Tights.
 
@@ -68,7 +68,7 @@ The newbie on the blog, they are soon rising to rival all the major athletic bra
 
 Product spotlight: **Chaturanga Tight**
 
-[caption id="attachment_1088" align="alignnone" width="520"][![Source: Athleta.com](http://girlintheraw.com/wp-content/uploads/2014/12/a264c1ee3df86b7d2e59b276f385ced7.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/a264c1ee3df86b7d2e59b276f385ced7.jpg) Source: Pinterest[/caption]
+![](/images/a264c1ee3df86b7d2e59b276f385ced7.jpg) Source: Pinterest[/caption]
 
 Athleta has a whole section on their website for printed pants, so you can feast your eyes on all but the basic black styles in one place. The _Chanturaga_ thight (notice the yogi name) is your basic yoga pant - easy to move in, comfortable mid rise waist, decent quality. Comes in capri and long. Price: $64.00 and up capri. $74.00 and up tight.
 
@@ -77,14 +77,14 @@ These guys have been blowing up my Instagram feed for a while now. Their style i
 
 Product Spotlight: **Goddess Leggings **
 
-[caption id="attachment_1089" align="alignnone" width="683"][![Source: Pinterest](http://girlintheraw.com/wp-content/uploads/2014/12/alo.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/alo.jpg) Source: Pinterest[/caption]
+![](/images/alo.jpg) Source: Pinterest[/caption]
 
 These definitely earn the originality contest - when I first saw them, I thought they were socks on top of pants I did! They come in all kinds of funky colors and patters, and color blocking never seemed more in style. Price: $92.00.
 
 ###### 
 
 *   **Bonus: H&amp;M Sport Tights**
-[caption id="attachment_1090" align="alignnone" width="384"][![Source: hm.com](http://girlintheraw.com/wp-content/uploads/2014/12/hmprod.jpeg)](http://girlintheraw.com/wp-content/uploads/2014/12/hmprod.jpeg) Source: hm.com[/caption]
+![Source: hm.com](http://girlintheraw.com/wp-content/uploads/2014/12/hmprod.jpeg)](http://girlintheraw.com/wp-content/uploads/2014/12/hmprod.jpeg) Source: hm.com[/caption]
 
 Don't feel like lashing out a $100 for a pair of yoga pants (either for yourself or someone else)? I totally get it! H&amp;M was a dream when I was a teenager, and they are still raging strong all over the world today. These tights will cost you a fraction of the price, and still deliver the cool wow factor. Price $30.
 
@@ -95,12 +95,12 @@ Don't feel like lashing out a $100 for a pair of yoga pants (either for yourself
 Since we are talking about yoga fashion - we can't have bottoms without tops! You can gift your yogi friend with a whole outfit if you will, and they will surely be beyond grateful. The previously mentioned brands carry all the products for yoga you can imagine, from socks to headbands, and while you are browsing for yoga pants, you can check out tank tops and shits as well. You are sure to find a matching set from the same brand as well.
 
 *   ###### **Vegan Yogi Unicorn**
-[![vyu2](http://girlintheraw.com/wp-content/uploads/2014/12/vyu2.png)](http://girlintheraw.com/wp-content/uploads/2014/12/vyu2.png)
+![](/images/vyu2.png)
 
 Lauren, the girl behind Vegan Yogi Unicorn, is a yoga instructor, a vegan and an adventurer! She's a friend of mine via the all powerful Instagram, we have hosted a couple of yoga challenges together. I just love her Goddess Tank, it's a great piece to wear with yoga pants or jeans, and your yogi will feed inspired to strike a pose no matter the time and place - just like me here! You will be supporting a small business, and know that all your pieces are made _ahimsa_ (non-violence) style - no animal products or abuse involved! Check http://www.veganyogiunicorn.com/. Price: $20+.
 
 *   ###### **Funky Yoga **
-[![funky2](http://girlintheraw.com/wp-content/uploads/2014/12/funky2.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/funky2.jpg)Another business that started small and is steadily growing, that makes yogi fashion their priority. Comfortable tanks, shirts, pants, bags and even door mats from this company. I am an ambassador for Funky yoga, and love their tanks because they are colorful, soft and comfy, and I definitely wear them off-duty as well. Check out www.funkyyoga.com. Price: $30+.
+![](/images/funky2.jpg)Another business that started small and is steadily growing, that makes yogi fashion their priority. Comfortable tanks, shirts, pants, bags and even door mats from this company. I am an ambassador for Funky yoga, and love their tanks because they are colorful, soft and comfy, and I definitely wear them off-duty as well. Check out www.funkyyoga.com. Price: $30+.
 
 #### 
 
@@ -109,12 +109,12 @@ Lauren, the girl behind Vegan Yogi Unicorn, is a yoga instructor, a vegan and an
 Now we are getting deep and meaningful. A 'gift that keeps on giving' as they say, is the gift of knowledge. Depending on how committed your yogi friend is, they might be bringing their yoga off the mat and into their every day lives by practicing some of it's principles and teachings. Yoga promotes patience, balance, non-violence and many more noble values. The culture and practice has existed for thousands of years, and throughout history many books have been written on the subject.
 
 *   ###### **Bhagavad Gita**
-[![Bhagavad-gita-front](http://girlintheraw.com/wp-content/uploads/2014/12/Bhagavad-gita-front.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/Bhagavad-gita-front.jpg)
+![](/images/Bhagavad-gita-front.jpg)
 
 By far my favorite yoga book, basically the 'Bible' of yoga, is the Bhagavad Gita. It has many editions and translations (it's originally written in Sanskrit, the same language those weird yoga pose names are in), and I find this version by Swami Prabhupada the most profound one. The gem of yoga philosophy, this book has a recommendation quote by Einstein himself on the back. This is a deep and thoughtful book, for those yogis that seem to take their practice to the next level.
 
 *   ###### **Light on Yoga**
-[![410YQTQ9X2L](http://girlintheraw.com/wp-content/uploads/2014/12/410YQTQ9X2L.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/410YQTQ9X2L.jpg)
+![](/images/410YQTQ9X2L.jpg)
 
 Another yogi 'Bible', but this time focusing on the physical practice and the asanas or poses, is the Light on Yoga by B.K.S. Iyengar, the master of modern yoga himself. Mister Iyengar passed away just this year (2014), and was practicing till the very last breath in his ripe age of 96\. If you know a yogi that's embarking on a teacher training journey to become an instructor, know that this book is the basics in any yoga training I know of. You will be completing their handbook requirements with this one for sure.
 
@@ -126,7 +126,7 @@ Another yogi 'Bible', but this time focusing on the physical practice and the as
 
 Yoga Journal is the magazine of yoga, and they have been stronger than ever. From advice by the teaching elite of yoga today, to detailed descriptions of poses in every issue, to articles on how to live a yogi life, this magazine has it all. Whether you want to pick up an issue or gift a subscription, I'm sure your yogi friend will love it. Price: about $14.00 for a subscription.
 
-[![coversquare](http://girlintheraw.com/wp-content/uploads/2014/12/coversquare.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/coversquare.jpg)
+![](/images/coversquare.jpg)
 
 ###### 
 
@@ -138,12 +138,12 @@ If you want to get real fancy, know that this magazine throws a handful of yearl
 I love a special yoga event, and if it contains live music, even better! Getting your yogi a ticket to a special yoga event in their neighborhood is a good way to give an experience as opposed to a product. A bonus feature is that you can attend the event with them! Bonding experience: check!
 
 *   ###### **Jai Uttal**
-[![freebiebanner](http://girlintheraw.com/wp-content/uploads/2014/12/freebiebanner.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/freebiebanner.jpg)
+![](/images/freebiebanner.jpg)
 
 I love this guy! I just saw him in a concert in San Francisco (he has a lot of holiday events planned, including a retreat over New Years) with Ben Leinbach, another great musician. Live kirtan devotional music with rock elements. Check www.jaiuttal.com for events. Price: $25.00 and up for 1 night event.
 
 *   ###### **Krsna Das**
-[![120302-01](http://girlintheraw.com/wp-content/uploads/2014/12/120302-01.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/120302-01.jpg)
+![](/images/120302-01.jpg)
 
 &nbsp;
 
@@ -157,7 +157,7 @@ If you can't give a live music experience, a CD will do! Yogis have their own ta
 
 Wonderful Yogi Musicians: Besides the aforementioned Jai Uttal and Krsna Das, I really like Deva Pramal, Snatam Kaur, Mayapuris, Gaura Vani, Yoga Pop Ups (famous musicians reinvented as relaxing yoga music), MC Yogi, DJ Drez.
 
-[![Shanti Snatam](http://girlintheraw.com/wp-content/uploads/2014/12/Shanti-Snatam.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/Shanti-Snatam.jpg)
+![](/images/Shanti-Snatam.jpg)
 
 ##### 
 
@@ -166,7 +166,7 @@ Wonderful Yogi Musicians: Besides the aforementioned Jai Uttal and Krsna Das, I 
 Well duh! - who wouldn't like a yoga retreat?! Considering the median price for a retreat would be $1500 without the plane ticket, this is obviously a fancy gift that few yogis have even given themselves. But if you have a burning desire to take your yoga BFF for an exotic adventure, this is always a great option. (OK, so I know this probably won't happen. But a yogi can dream, right?).
 
 *   ###### **Wanderlust**
-[caption id="attachment_1099" align="alignnone" width="550"][![wlqc_550](http://girlintheraw.com/wp-content/uploads/2014/12/wlqc_550.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/wlqc_550.jpg) Source: wanderlust.com[/caption]
+![](/images/wlqc_550.jpg) Source: wanderlust.com[/caption]
 
 This is a great option next to a full blown yoga retreat, specially if you live in or close to one of the Wunderlust locations! They are 4 day celebrations of yoga, music, food and all over fun. Held at wonderful locations all over the US, Canada, Hawaii and with an addition of Australia, they combine love of outdoors, fun activities (hiking, stand up paddle boarding) and yoga. You can get a 1 day pass at about $100, 4 days at $400+.
 
@@ -198,7 +198,7 @@ For the shy, busy, stay-at-home-mom yogi, having the opportunity to practice in 
 *   ###### **Yoga Stickers**
 For those hard core yogis that want to show their love for the practice on the rear end of a car! From Namaste to funny yoga puns, this is the ultimate stocking stuffer.
 
-[![gift](http://girlintheraw.com/wp-content/uploads/2014/12/gift.jpg)](http://girlintheraw.com/wp-content/uploads/2014/12/gift.jpg)
+![](/images/gift.jpg)
 
 &nbsp;
 

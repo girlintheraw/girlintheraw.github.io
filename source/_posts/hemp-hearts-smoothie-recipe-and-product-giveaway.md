@@ -24,7 +24,7 @@ Without further ado, here's the easiest delicious smoothie recipe you'll ever ne
 
 ### Hemp Hearts Smoothie
 
-[![smoothhemp2](http://girlintheraw.com/wp-content/uploads/2015/11/smoothhemp2-960x893.jpg)](http://girlintheraw.com/wp-content/uploads/2015/11/smoothhemp2.jpg)
+![](/images/smoothhemp2.jpg)
 
 ###### INGREDIENTS (makes 2):
 
@@ -57,7 +57,7 @@ Follow me, GIR on Twitter: [@GirlinTheRaw](https://twitter.com/GirlinTheRaw)
 
 Instagram: [@girlintheraw](https://instagram.com/girlintheraw/)
 
-[caption id="attachment_1954" align="aligncenter" width="800"][![source: manitobaharvest.com](http://girlintheraw.com/wp-content/uploads/2015/11/hemphearts.jpg)](http://girlintheraw.com/wp-content/uploads/2015/11/hemphearts.jpg) source: manitobaharvest.com[/caption]
+![](/images/hemphearts.jpg) source: manitobaharvest.com[/caption]
 
 ###### **BENEFITS OF HEMP SEEDS:**
 
@@ -78,7 +78,7 @@ So here are some benefits of adding hemp seeds to your every day diet:
 *   and many more....
 Here's the nutritional value breakdown from Manitoba Harvest website:
 
-[![nutritional-value-hemp](http://girlintheraw.com/wp-content/uploads/2015/11/nutritional-value-hemp.jpg)](http://girlintheraw.com/wp-content/uploads/2015/11/nutritional-value-hemp.jpg)
+![](/images/nutritional-value-hemp.jpg)
 
 ###### Have you tried Hemp seeds? What is your favorite way to use them?
 

@@ -15,7 +15,7 @@ Doing something you love for a living is the best gift, and considering polls ha
 
 That is definitely true for teaching yoga, specially if you teach a good amount of classes per week, and your classes are taught in the same style or school of yoga. Although some find comfort in a steady schedule, if you are anything like me, and like to keep things interesting and stay alert, try new things, and grow, teaching the same class over and over again gets tired&nbsp;very quickly!
 
-[![grandcanyonwheel](http://girlintheraw.com/wp-content/uploads/2015/12/grandcanyonwheel-960x960.jpg)](http://girlintheraw.com/wp-content/uploads/2015/12/grandcanyonwheel.jpg)
+![](/images/grandcanyonwheel.jpg)
 
 Besides keeping your yoga knowledge and personal practice, one thing that helps me stay interested is keeping my&nbsp;<span style="text-decoration: underline;">**yoga playlist game on point**</span>, specially when teaching back to back classes.&nbsp;
 
@@ -29,7 +29,7 @@ I use a few different services: [iTunes](http://www.apple.com/itunes/download/),
 
 **<span style="text-decoration: underline;">Tidal</span>** is a fancy and pricy service created by Jay-Z. If you enjoy good quality sound, then this is for you because to my understanding, this is as high quality as it's gets in mobile and desktop music applications. My husband is the one with the high taste, and as we have an extensive music system at home with fancy speakers, amplifiers and other things I may not know much about, he prefers to use Tidal - and even I can tell the difference in sound!&nbsp;
 
-[caption id="attachment_2105" align="aligncenter" width="960"][![handstandcali](http://girlintheraw.com/wp-content/uploads/2015/12/handstandcali-960x720.jpg)](http://girlintheraw.com/wp-content/uploads/2015/12/handstandcali.jpg) The sounds of the waves are the perfect Yoga Playlist if you ask me![/caption]
+![](/images/handstandcali.jpg) The sounds of the waves are the perfect Yoga Playlist if you ask me![/caption]
 
 ### Yoga Playlist for a Yoga Flow 60 minute practice
 

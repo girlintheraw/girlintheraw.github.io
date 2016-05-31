@@ -18,7 +18,7 @@ When I first embarked on a raw food journey, sweet balls became my staple. They 
 
 You only need a&nbsp;few ingredients to make up an easy base for sweet balls, like dates and nuts, and you can get as creative as you want from there. These&nbsp;<span style="text-decoration: underline;">**Raw Vegan Coconut Cashew Sweet Balls**</span> are one of my all-time favorites to date!
 
-[![coconutcashewballs5.jpg](http://girlintheraw.com/wp-content/uploads/2016/02/coconutcashewballs5.jpg)](http://girlintheraw.com/wp-content/uploads/2016/02/coconutcashewballs5.jpg)
+![](/images/coconutcashewballs5.jpg)
 
 I actually just stumbled upon these pictures today, and the truth is they were taken at least two years ago, probably closer to three. This is one of the very first raw food recipes that I've ever made, before I even had my Vitamix. Right before Christmas 2012, I decided I didn't feel as healthy as I would like to, and I embarked on a <span style="text-decoration: underline;">**Master Cleanse**</span>&nbsp;detox journey. I was on the cleanse for 12 days straight! It was quite a feat which I wish to repeat again (it just ain't easy to start!). I drank the Master cleanse lemonade, made with organic lemons, grade B quality Maple syrup, and cayenne pepper, mixed in the best water you can find, preferably spring. After completing the cleanse, I was craving foods - but only very light and nutritious. I eased out of the cleanse by eating a lot of raw foods, and this is how Girl in the Raw came to be!
 
@@ -33,6 +33,6 @@ Benefits of Raw Coconut Cashew balls:
 *   nuts are a great source of raw plant-based protein
 [yumprint-recipe id='5']&nbsp;Besides topping them with delicious raw Caramel date cream, and coconut shavings, I enjoyed my sweet balls (yes, I laugh out loud a bit every time I say or write this - if you have a better name, let me know!) with homemade raw nut milk!&nbsp;
 
-[caption id="attachment_2334" align="aligncenter" width="3539"][![coconutcashewballs2.jpg](http://girlintheraw.com/wp-content/uploads/2016/02/coconutcashewballs2.jpg)](http://girlintheraw.com/wp-content/uploads/2016/02/coconutcashewballs2.jpg) Coconut cashew sweet balls with caramel date cream[/caption]
+![](/images/coconutcashewballs2.jpg) Coconut cashew sweet balls with caramel date cream[/caption]
 
 ###### Enjoy!

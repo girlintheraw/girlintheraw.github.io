@@ -17,7 +17,7 @@ date: 2016-02-12 22:36:16
 
 Mediterranean cooking style&nbsp;is one of the most recognized and loved around the globe. It has stood the test of time, and remained popular even against all the modern dietary trends. A diet rich in vegetables, healthy oils and fats, herbs and light condiments, it is naturally healthy, relatively low in calories, and palatable. It is also easily adoptable to many dietary styles - in this case, both VEGAN and GLUTEN-FREE. This Mediterranean pasta recipe is easy to make, rich in healthy colorful vegetables, perfectly seasoned and flavorful. Two ingredients that stand out and make this simple pasta&nbsp;recipe&nbsp;unique and delicious,&nbsp;are sun dried tomatoes and pine nuts.&nbsp;
 
-[caption id="attachment_2315" align="aligncenter" width="4032"][![Mediterraneanpasta3.jpg](http://girlintheraw.com/wp-content/uploads/2016/02/Mediterraneanpasta4.jpg)](http://girlintheraw.com/wp-content/uploads/2016/02/Mediterraneanpasta4.jpg) Flavorful, yet healthy mediterranean pasta recipe[/caption]
+![](/images/Mediterraneanpasta4.jpg) Flavorful, yet healthy mediterranean pasta recipe[/caption]
 
 Coming from Croatia, I&nbsp;grew up eating a Mediterranean diet, even if we didn't call it that. Pasta was one of the staples on our dinner table, and as I grew up and started cooking for myself, I discovered why it's everyone's favorite - it's delicious, easy to make and incredibly quick to cook! However, I was very sad to realize, it's not always a healthy choice. But I pride myself in 'healthyfying' any recipe, and pasta is no exception.
 
@@ -27,7 +27,7 @@ My **vegetables** of choice were sweet spring green peas, corn, shredded raw zuc
 
 [yumprint-recipe id='4']This recipe leaves your Mediterranean pasta pretty 'naked' - which means you can dress it up whichever way you'd like. From your favorite cheeses to sour cream, to flavored oils and spices, feel free to add in whatever suits you.
 
-[caption id="attachment_2312" align="aligncenter" width="4032"][![Mediterraneanpasta3.jpg](http://girlintheraw.com/wp-content/uploads/2016/02/Mediterraneanpasta3.jpg)](http://girlintheraw.com/wp-content/uploads/2016/02/Mediterraneanpasta3.jpg) Mediterranean pasta topped with vegan sour cream[/caption]
+![](/images/Mediterraneanpasta3.jpg) Mediterranean pasta topped with vegan sour cream[/caption]
 
 Serve on top of greens or with a side salad, and enjoy!
 

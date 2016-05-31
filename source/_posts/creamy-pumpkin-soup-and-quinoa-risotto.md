@@ -14,7 +14,7 @@ categories:
 date: 2015-04-03 23:52:48
 ---
 
-[![ris-soup](http://girlintheraw.com/wp-content/uploads/2015/04/ris-soup.png)](http://girlintheraw.com/wp-content/uploads/2015/04/ris-soup.png)
+![](/images/ris-soup.png)
 
 I lived in Florida for about four years, and during that period I lost touch with nature's season. Being born and raised in Croatia, my body, mind and senses were very into with the passing of the seasons. All the changes happening in nature affect our bodies, and influences our lifestyles greatly. Therefore, even without thinking about it consciously, I learned a lot about eating foods that are local and in season. I know the strawberry season is short and sweet, and a perfect announcement of the upcoming summer. My grandparents had a vineyard, and we would religiously pick grapes in September as they ripened (Croatians make a big deal of the grape picking and vine making ritual).
 
@@ -28,7 +28,7 @@ Luckily for me, the local market is slowly growing every week! I also use a home
 
 This is a whole dinner in one package! You obviously do not need to prepare these two recipes together, as they are just as delicious on their own. However, if you are hosting a dinner party, this full meal with satisfy vegans and non-vegans alike. It is rich in plant based protein (hello quinoa!), very creamy and savory although it doesn't have a drop of dairy, and bursting with flavor from three different preparations.
 
-[![pump-soup](http://girlintheraw.com/wp-content/uploads/2015/04/pump-soup.png)](http://girlintheraw.com/wp-content/uploads/2015/04/pump-soup.png)
+![](/images/pump-soup.png)
 
 ###### **Cream of Pumpkin Soup **
 
@@ -49,7 +49,7 @@ Pumpkin is so delicious and creamy on it's own, it is a perfect ingredient for a
 1.  Core, peel and cube the pumpkin and zucchini. Bring water to boil, add the pumpkin and cook for about 8 minutes - it will get soft and tender very quickly! Add zucchini and cook for another minute (you can put it in raw as well). Pierce with a fork to see if pumpkin is done, it should be slightly falling apart but not too overcooked.
 2.  Place veggies in a blender, add 1/4 cup almond milk, and fill up the rest on cooking liquid. You may not need all of it, and here it is up to you - the thicker you want the soup, the less water you put. I usually go for half solid, half liquid ingredients.
 3.  As you may discard some of the cooking liquid, I like to put my bullion in at the end with the spices, it dissolves quickly, specially in a Vitamix. Blend and serve hot!
-[![quinoa-ris2](http://girlintheraw.com/wp-content/uploads/2015/04/quinoa-ris2.jpg)](http://girlintheraw.com/wp-content/uploads/2015/04/quinoa-ris2.jpg)
+![](/images/quinoa-ris2.jpg)
 
 ###### **Quinoa Risotto with Romanesco Broccoli**
 
@@ -66,7 +66,7 @@ _{makes 2; vegan, gluten-free, Ayurvedic, soy-free, sugar-free}_
 
 1.  Cook quinoa according to package directions. If there are no directions, it takes about 1.5 cups of water per 1 cup of quinoa. Cook uncovered in salty water for about 30 minutes. You will be able to tell when it's done, as it will grow in volume, get a bit transparent around the edges, and release something resembling a little sprout (the thin, hair-like string).
 2.  In the meantime, prep your Romanesco. In a saucepan or frying pan, heat up the oil and add the florets, stir-frying for about 8 minutes or until tender and brown around the edges. When quinoa is done, stir it into the pan and mix thoroughly with the veggies and oil, adding any spices you wish at the end. And done!
-[caption id="attachment_1010" align="alignnone" width="1844"][![OLYMPUS DIGITAL CAMERA](http://girlintheraw.com/wp-content/uploads/2015/04/quinoa-ris.jpg)](http://girlintheraw.com/wp-content/uploads/2015/04/quinoa-ris.jpg) OLYMPUS DIGITAL CAMERA[/caption]
+![](/images/quinoa-ris.jpg)
 
 ###### **Colorful Salad**
 
@@ -82,7 +82,7 @@ No meal should be served without fresh produce, and I love a good salad with my 
 2.  Stir in your favorite dressing, or a mix of balsamic and olive oil, and top with cashew cream if you have any.
 &nbsp;
 
-###### [![cashewcream](http://girlintheraw.com/wp-content/uploads/2015/04/cashewcream.jpg)](http://girlintheraw.com/wp-content/uploads/2015/04/cashewcream.jpg)
+###### ![](/images/cashewcream.jpg)
 
 ###### *** CASHEW CREAM:**
 

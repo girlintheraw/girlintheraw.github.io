@@ -17,7 +17,7 @@ date: 2015-06-24 19:07:44
 
 **Positive affirmations are like unicorns - you are not really sure if they exist (i.e. work), but the magic surrounding their very idea makes you really really want them to be true.**
 
-[![medit1](http://girlintheraw.com/wp-content/uploads/2015/06/medit1.jpg)](http://girlintheraw.com/wp-content/uploads/2015/06/medit1.jpg)
+![](/images/medit1.jpg)
 
 According to world renowned authorities such as Deepak Chopra, Luise L. Hay, even Oprah, and countless spiritual guides, gurus and movements, positive affirmations do exist and work! They do not only have a profound effect on your immediate mood and wellbeing, but they have the ability to completely transform your life in any area, and by association transform lives of others around you and your relationships with them.
 
@@ -34,7 +34,7 @@ Here's an example: I'm teaching a yoga workshop over the weekend. I am afraid it
 
 Positive affirmations to the rescue: I consciously have to stop my mind from telling me this story, and replace it with positive ideas. Even if it seems completely unrealistic, and I do not even believe it, I will start saying: My workshop will be great. People will have a good time and learn something that will improve their practice and relationship with yoga. I will do my best and that is all that matters.
 
-[![med3](http://girlintheraw.com/wp-content/uploads/2015/06/med3-e1435172706539.jpg)](http://girlintheraw.com/wp-content/uploads/2015/06/med3-e1435172706539.jpg)
+![](/images/med3-e1435172706539.jpg)
 
 ###### **What is that "negative talk"?**
 
@@ -64,7 +64,7 @@ The root of negative talk dates way way back.. and therefore, in order to perfor
 
 **Positive affirmations are a therapy in themselves,** and all that matters is what you are thinking right now, and how to start thinking positively in the future. The past can stay where it is.
 
-[![med4](http://girlintheraw.com/wp-content/uploads/2015/06/med4.jpg)](http://girlintheraw.com/wp-content/uploads/2015/06/med4.jpg)
+![](/images/med4.jpg)
 
 ###### **How to do Positive Affirmations? **
 
@@ -78,7 +78,7 @@ Once you start practicing positive affirmations, you will learn to check in with
 
 With time, you will learn to catch the negative talk before it sprouts and starts growing, and develop the positive mind set instead. And that's the way of becoming a positive person.
 
-[![medit2](http://girlintheraw.com/wp-content/uploads/2015/06/medit2.jpg)](http://girlintheraw.com/wp-content/uploads/2015/06/medit2.jpg)
+![](/images/medit2.jpg)
 
 ###### **The true benefit of Positive Affirmations...**
 

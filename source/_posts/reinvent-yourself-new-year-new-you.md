@@ -19,7 +19,7 @@ date: 2015-01-13 01:59:29
 
 We have officially entered the year from Back to the Future II, a sci-fi classic that shaped our ideas of the future in the 90s. Although there were no flying cars and hovering skateboards under the Xmas tree for me this year, and the fashion might be a tad different, I do really feel like the future has arrived!
 
-[![back-to-the-future-2_8col](http://girlintheraw.com/wp-content/uploads/2015/01/back-to-the-future-2_8col.jpg)](http://girlintheraw.com/wp-content/uploads/2015/01/back-to-the-future-2_8col.jpg)
+![](/images/back-to-the-future-2_8col.jpg)
 
 Almost, right? Do you remember the two ties, the mini pizza that miraculously grew ten times it's size in the microwave (radiation might do that to do, btw), or the shark hologram? Oh, you couldn't care less about this movie? OK, moving on...
 
@@ -27,7 +27,7 @@ I have spent the first day of this year thinking about the future. My plans for 
 
 It was my first time scouting a studio I am hopefully going to teach at soon, and in accordance with it being January 1st, I greatly enjoyed taking a class from a new instructor in a new space.
 
-[![tree](http://girlintheraw.com/wp-content/uploads/2015/01/tree.jpg)](http://girlintheraw.com/wp-content/uploads/2015/01/tree.jpg)
+![](/images/tree.jpg)
 
 The teacher/studio owner invited us to write down our **INTENTIONS** for the upcoming year. Not resolutions, no empty plans and broken promises to yourself and others. She invited us to focus on how we would like to <span style="text-decoration: underline;">**feel**</span> in the year year, rather than focusing on what we would like to do, where we would like to go, or how we would like to look. After writing down a few ideas on a paper, we continued to move on our mats while keeping our intentions list close by in case a new idea intuitively sprouts during class - this way, we could write it down immediately. Having the list visible at all times also served as a great reminder of my intentions during the asanas, and they slowly started to come to life as they transformed from words to actual feelings and sensations.
 
@@ -40,7 +40,7 @@ I would also like to **feel free** in every situation, as much as possible. Stop
 
 And as I was writing my intentions down and reading them back to myself during class, I realized just how easy it is to loose touch with yourself in this crazy, fast paced, modern and futuristic world! We are constantly seeking enjoyment, satisfaction, to be pacified, and we are seeking it in material things and outside world.
 
-[![hand](http://girlintheraw.com/wp-content/uploads/2015/01/hand.jpg)](http://girlintheraw.com/wp-content/uploads/2015/01/hand.jpg)
+![](/images/hand.jpg)
 
 The first 'rule' of yoga is simply **UNION**. To connect. To tap into yourself and find your center, examine it, improve it, grow it... That is why you will hear the word **_intention_** in almost every yoga class around the world, and numerous times during the hour.
 

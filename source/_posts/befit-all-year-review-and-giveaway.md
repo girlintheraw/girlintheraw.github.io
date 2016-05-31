@@ -19,7 +19,7 @@ As a #SweatPink ambassador, I was very happy to receive the nutritional suppleme
 
 Here's my experience with BeFit:
 
-[caption id="attachment_2401" align="aligncenter" width="493"][![BeFit nutrition products](http://girlintheraw.com/wp-content/uploads/2016/02/befitproducts-e1456263865649.jpg)](http://girlintheraw.com/wp-content/uploads/2016/02/befitproducts-e1456263865649.jpg) BeFit nutrition products[/caption]
+![](/images/befitproducts-e1456263865649.jpg) BeFit nutrition products[/caption]
 
 ### What do you get in this program?
 
@@ -29,10 +29,10 @@ Here's my experience with BeFit:
 
 ## [30-DAY WORKOUT VIDEO PLAYLIST](https://www.youtube.com/playlist?list=PL1c41tQdiDhPkUERLFje9twkoHtPkWr1l)
 
-*   <span style="text-decoration: underline;">**[The introduction video](https://www.youtube.com/watch?v=XOkyhW3wZEQ&amp;list=PL1c41tQdiDhPkUERLFje9twkoHtPkWr1l&amp;index=1)**</span> tells you exactly what to expect, so if you are considering joining the program, this is the place to stop by first. It also introduces you to the fitness instructors, Astrid and Danielle. The girls seem fun, friendly yet professional. As a yoga instructor, I always listen to instructions a bit more carefully, and can always notice if the trainer or instructor doesn't know what they are talking about. It's not that I am critical, but I can't help it either - if someone is instructing me to do something I know could lead to injury or enforces improper form, I won't be happy. The girls are pretty good at what they do, however, so I was happy! I'm not saying this only because they are visibly fit, which doesn't hurt, but because they do offer modifications, consider possible injuries or issues like lower back pain, and demo the form right as well.&nbsp;
+*   <span style="text-decoration: underline;">****The introduction video** {% youtube XOkyhW3wZEQ %}**</span> tells you exactly what to expect, so if you are considering joining the program, this is the place to stop by first. It also introduces you to the fitness instructors, Astrid and Danielle. The girls seem fun, friendly yet professional. As a yoga instructor, I always listen to instructions a bit more carefully, and can always notice if the trainer or instructor doesn't know what they are talking about. It's not that I am critical, but I can't help it either - if someone is instructing me to do something I know could lead to injury or enforces improper form, I won't be happy. The girls are pretty good at what they do, however, so I was happy! I'm not saying this only because they are visibly fit, which doesn't hurt, but because they do offer modifications, consider possible injuries or issues like lower back pain, and demo the form right as well.&nbsp;
 *   The workouts are about 10 min long, so definitely doable on a daily basis. As I mentioned earlier, you won't need many props to make these happen. I tried to take them to my gym a few times, which was great for when I needed&nbsp;dumbbells (like in Cardio Extreme or Dynamic Strength workout), but my own yoga mat at home did the trick on days I didn't feel like leaving the house to work out.&nbsp;
 *   As I was recovering from [Miami Marathon](http://girlintheraw.com/miami-marathon-race-recap-my-30th-birthday/), I didn't jump into the workouts like nuts, but rather took it slow. What I really liked about the program is that the workouts are challenging, but aren't too demanding either, specially time wise. If you are already in a certain training cycle, like training for a race, you can add these on your regular schedule without worrying about working out too much or skipping on important training days.&nbsp;
-[![Screen Shot 2016-02-23 at 5.11.14 PM](http://girlintheraw.com/wp-content/uploads/2016/02/Screen-Shot-2016-02-23-at-5.11.14-PM.png)](http://girlintheraw.com/wp-content/uploads/2016/02/Screen-Shot-2016-02-23-at-5.11.14-PM.png)
+![](/images/Screen-Shot-2016-02-23-at-5.11.14-PM.png)
 
 So which were my favorite videos? It's hard to chose. I'm a fan of squats, big fan of planks - and so are our trainers (yay), and love to sweat it out. I loved Cardio Extreme, Cardio Burn and Legs and Butt Shaper. Arms and Abs weren't my favorite, because I didn't have access to a dumbbell every time I did it, so I had to improvise - this is the one you really can't do without extra weight in your arms.
 
@@ -42,17 +42,17 @@ The girls do some videos solo, and some together - and although they were great 
 
 ## 30-day WORKOUT CALENDAR
 
-[caption id="attachment_2399" align="aligncenter" width="2448"][![BeFit all year workout calendar ](http://girlintheraw.com/wp-content/uploads/2016/02/30-day-fat-burn-calendar_BeFit.jpg)](http://girlintheraw.com/wp-content/uploads/2016/02/30-day-fat-burn-calendar_BeFit.jpg) BEFIT ALL YEAR WORKOUT CALENDAR[/caption]
+![](/images/30-day-fat-burn-calendar_BeFit.jpg) BEFIT ALL YEAR WORKOUT CALENDAR[/caption]
 
 Pretty self-explanatory. Yes, there are rest days! Always good to know.&nbsp;
 
-By looking at the names of the workouts, I thought I'd know approximately what to expect. But I was wrong! These are&nbsp;<span class="s1">fat burning, high intensity cardio and strength workouts. Even a workout like <span style="text-decoration: underline;">**[Cardio Extreme](https://www.youtube.com/watch?v=O9rSPm-6s94&amp;list=PL1c41tQdiDhPkUERLFje9twkoHtPkWr1l&amp;index=2)**</span> will leave you sore, as there are a lot of squats involved. In my experience, each and every video challenged the whole body. I liked that they focused on lower body with lots of squats and lunges and variations, and core with planks and V sit-ups (like boat pose in yoga). I feel like I need to work on by booty and core most, so they worked perfectly for me!</span>
+By looking at the names of the workouts, I thought I'd know approximately what to expect. But I was wrong! These are&nbsp;<span class="s1">fat burning, high intensity cardio and strength workouts. Even a workout like <span style="text-decoration: underline;">**Cardio Extreme**</span>{% youtube O9rSPm-6s94 %} will leave you sore, as there are a lot of squats involved. In my experience, each and every video challenged the whole body. I liked that they focused on lower body with lots of squats and lunges and variations, and core with planks and V sit-ups (like boat pose in yoga). I feel like I need to work on by booty and core most, so they worked perfectly for me!</span>
 
 ### How do these compare to workout videos I've done in the past?&nbsp;
 
 I've done<span style="text-decoration: underline;">** P90x**</span> and <span style="text-decoration: underline;">**Insanity**</span> in the past, completing the full program each time, and have done&nbsp;Brazilian But lift from Beach Body as well, but very sporadically.&nbsp;
 
-I would say these videos would be a mash up of P90x and Insanity - they use less weights and props than P90, but aren't as fast and intense as Insanity. Now don't get me wrong, the girls move pretty fast. If you don't know the moves, it will take you a few seconds to catch up. I feel they focus on lower body more than upper body, and more than the aforementioned workout programs, which kind of makes sense since the instructors are girls! I feel men always lean towards building their biceps, pecs etc, while us girls want a toned lower body more. They do have an [arms and abs](https://www.youtube.com/watch?v=edjii2v9z-A&amp;index=5&amp;list=PL1c41tQdiDhPkUERLFje9twkoHtPkWr1l) video as well, if that's your thing.&nbsp;
+I would say these videos would be a mash up of P90x and Insanity - they use less weights and props than P90, but aren't as fast and intense as Insanity. Now don't get me wrong, the girls move pretty fast. If you don't know the moves, it will take you a few seconds to catch up. I feel they focus on lower body more than upper body, and more than the aforementioned workout programs, which kind of makes sense since the instructors are girls! I feel men always lean towards building their biceps, pecs etc, while us girls want a toned lower body more. They do have an **arms and abs** {% youtube edjii2v9z-A %} video as well, if that's your thing.&nbsp;
 
 The workouts don't have a warm-up and cool down/stretch, which makes sense since they are much shorter, so I added my own stretches afterwords.&nbsp;
 
@@ -60,7 +60,7 @@ The workouts don't have a warm-up and cool down/stretch, which makes sense since
 
 The nutrition plan (which you can win!) consists of Burn veggie caps, Pre Workout energy drink powder supplement, and a Whey Protein. I skipped on whey and used my own plant-based protein powder in morning smoothies.&nbsp;
 
-[caption id="attachment_2405" align="aligncenter" width="2187"][![Protein smoothie every day!](http://girlintheraw.com/wp-content/uploads/2016/02/smoothie1.jpg)](http://girlintheraw.com/wp-content/uploads/2016/02/smoothie1.jpg) Protein smoothie every day![/caption]
+![](/images/smoothie1.jpg) Protein smoothie every day![/caption]
 
 Here is where things got a bit tricky fore me. Yes, working out on a steady calendar schedule isn't easy for me, as I am more of a "do what you feel today" kinda girl, specially if I don't have any long races coming up. But keeping tabs on my nutrition seemed to be the biggest challenge of them all!
 

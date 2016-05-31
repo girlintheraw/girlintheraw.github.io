@@ -31,7 +31,7 @@ I stated that with so much enthusiasm, but I really have to take a few steps bac
 
 An adventure race (think Ragnar Relay), yes please!
 
-[caption id="attachment_1189" align="alignnone" width="960"][![Team What the Fitletic? killing it at Ragnar FL Keys ](http://girlintheraw.com/wp-content/uploads/2014/03/1800461_10102589344150462_190120601_n.jpg)](http://girlintheraw.com/wp-content/uploads/2014/03/1800461_10102589344150462_190120601_n.jpg) Team What the Fitletic? killing it at Ragnar FL Keys '14.[/caption]
+![](/images/1800461_10102589344150462_190120601_n.jpg) Team What the Fitletic? killing it at Ragnar FL Keys '14.[/caption]
 
 Finding a **vegan** item on a traditional all-American menu, making a stop in the middle-of-nowhere-town on a road trip, with a growling empty stomach? I think _No, thanks_.
 
@@ -41,7 +41,7 @@ All raw, vegan, gluten free? I say <span style="text-decoration: underline;">**Y
 
 That's a challenge that makes me grow as a vegan. As a cook. Neigh, it makes me grow as a human being!
 
-[caption id="attachment_1190" align="alignnone" width="1462"][![Check out them sweet balls!](http://girlintheraw.com/wp-content/uploads/2014/03/balls3.jpg)](http://girlintheraw.com/wp-content/uploads/2014/03/balls3.jpg) Check out them sweet balls![/caption]
+![](/images/balls3.jpg) Check out them sweet balls![/caption]
 
 I have extensive experience living on a "**_restricted_** diet". Do not get me wrong, it does not make controlling my tongue and my senses easier, that still takes practice and is a trial and error process, daily.
 
@@ -53,7 +53,7 @@ I am well aware of the life we lead, and it is amazing, a blessing, we have acce
 
 When you look at our lifestyles from that perspective, you understand that 'restrictive' diet isn't the correct term. I honestly have never met a person that eats **EVERYTHING**. If by everything you mean burgers and ice-cream, trying the most greasy kebab in the most underground restaurant on your trip to NYC, great. I bet then that person does not eat kale, pomegranate,  amaranth. There is no such thing as eating everything. Usually, the things I find delicious, people who think I eat like a cow find them disgusting, and vice versa. And that is fine.
 
-[caption id="attachment_1191" align="alignnone" width="960"][![Fruit madness!](http://girlintheraw.com/wp-content/uploads/2014/03/fruit-market.jpg)](http://girlintheraw.com/wp-content/uploads/2014/03/fruit-market.jpg) Fruit madness![/caption]
+![](/images/fruit-market.jpg) Fruit madness![/caption]
 
 Eating "_everything" _honestly does not appeal me in any way, whether I'm the one doing it or someone else. I believe everyone has, and should cultivate, their own **taste.** Taste in music, men, fashion. So obviously, taste in FOOD - it is what brings out your qualities, and awareness of your own body, mind and lifestyle. The more we build our inner taste from a place of listening to our bodies, our biological intuition, as opposed to eating what we are taught and trained to do by our families, culture, environment, the more refined our taste will be to achieve optimal health.
 
@@ -74,7 +74,7 @@ Fast forward - today I'm consciously working on inviting foods that only nourish
 But when presented with a challenge such as - make a sweet treat based on natural ingredients like fruits, nuts, without soy, grains, etc. I am **ready** to take it on!<span style="text-decoration: underline;">
 </span>
 
-[caption id="attachment_1192" align="alignnone" width="1715"][![OLYMPUS DIGITAL CAMERA](http://girlintheraw.com/wp-content/uploads/2014/03/balls4.jpg)](http://girlintheraw.com/wp-content/uploads/2014/03/balls4.jpg) OLYMPUS DIGITAL CAMERA[/caption]
+![](/images/balls4.jpg) OLYMPUS DIGITAL CAMERA[/caption]
 
 &nbsp;
 
@@ -106,6 +106,6 @@ But when presented with a challenge such as - make a sweet treat based on natura
 
 ##### <span style="color: #f75907;">3\. Pop in the freezer for a few minutes to create texture. Delicious crumbled over smoothies and other creamy sweet treats. </span>
 
-[caption id="attachment_1193" align="alignnone" width="2560"][![Enjoy!](http://girlintheraw.com/wp-content/uploads/2014/03/balls5.jpg)](http://girlintheraw.com/wp-content/uploads/2014/03/balls5.jpg) Enjoy![/caption]
+![](/images/balls5.jpg) Enjoy![/caption]
 
 &nbsp;

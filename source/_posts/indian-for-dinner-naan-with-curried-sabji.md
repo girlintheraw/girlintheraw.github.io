@@ -16,7 +16,7 @@ categories:
 date: 2015-04-25 02:07:30
 ---
 
-[![naan3 copy](http://girlintheraw.com/wp-content/uploads/2015/04/naan3-copy.png)](http://girlintheraw.com/wp-content/uploads/2015/04/naan3-copy.png)
+![](/images/naan3-copy.png)
 
 I have been practicing yoga for most of my life, as my mom is a yoga practitioner and an Ayurvedic healer. That also means I've been eating Indian food, a lot. Problem is, it may not necessarily agree with me, if I can put it in gentle terms. I am very sensitive to spicy foods, or as I call myself, quite a wimp! I can't stomach more than two flakes of chilly in my curry without blowing my mouth and drinking tons of water, all the time complaining how spicy it is.
 
@@ -28,7 +28,7 @@ What I love about this meal is that it consists of regular veggies you can pick 
 
 ###### **Whole Wheat Naan with Curried Sabji**
 
-[![OLYMPUS DIGITAL CAMERA](http://girlintheraw.com/wp-content/uploads/2015/04/naan-1.jpg)](http://girlintheraw.com/wp-content/uploads/2015/04/naan-1.jpg)
+![](/images/naan-1.jpg)
 
 **Sabji** is a mixed veggie preparation, that is usually made nice and juicy in a tomato, or cream sauce. There are many varieties of Sabji out there, from potato, to cauliflower and peas, to okra Sabji (there's okra again. I just don't like it). Sabji is usually prepared by heating up many traditional Indian spices, such as kumin and mustard seeds, in oil, and then frying, stir frying or grilling veggies of your choice. Even though it's a veggie dish, it can be quite heavy depending on the condiments, oil and sauces.
 
@@ -76,7 +76,7 @@ If you can make your own, kudos to you. That is the best option by far! I used t
 
 Because no meal should be eaten without some fresh raw veggies. Mixed baby greens, cucumbers, lemon juice and olive oil. I have found light green salads to be the key in digesting Indian food! And you will find that traditional Indian cuisine doesn't make much room for fresh raw salads. When I was in India, they would serve me three slices of tomatoes and three of cucumbers, on the side of rice, flat bread and the most spicy sabji you have ever eaten in your life, and called it a salad. I laugh at that till this day (I was crying about it in India, though).
 
-[![OLYMPUS DIGITAL CAMERA](http://girlintheraw.com/wp-content/uploads/2015/04/naan2.jpg)](http://girlintheraw.com/wp-content/uploads/2015/04/naan2.jpg)
+![](/images/naan2.jpg)
 
 I am sure that even those despising Indian food will love this recipe! Make it your own by adding your choice of veggies or beans, and be light on cayenne - you can always add more if you want (but you can't subtract)!
 
